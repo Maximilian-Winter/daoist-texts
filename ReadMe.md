@@ -17,7 +17,7 @@ The AI translation process aimed to preserve:
 ## Structure
 The collection is organized into thematic categories:
 ```
-daoist-texts-english/
+daoist-texts/
 ├── liturgical-texts-宝诰/        # Invocations and liturgies (1-99)
 ├── canonical-scriptures-经典/     # Core scriptures (280-862)
 ├── hagiographies-传记/           # Biographies of immortals
