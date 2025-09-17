@@ -1,0 +1,3 @@
+# General Declaration of the Three Purities
+
+With devoted mind I bow and surrender. The Treasure of the Way, the Treasure of the Scripture, the Treasure of the Master - the Jade Purity, the Supreme Purity, and the Grand Purity. The One Breath flows and moves; the Three Honoured manifest and transform. They encompass light in silence, speaking not, yet cause the four seasons to proceed. Their proper hue is void and empty; without limit they transform and give birth to the Three Realms. Above the Great Luo Heaven, within the Golden Gate Palace, there is Emptiness and Spontaneity; the Three Purities, the Three Realms, the Three Treasured Heavenly Honoured Ones.

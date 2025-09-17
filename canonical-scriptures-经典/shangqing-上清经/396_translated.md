@@ -1,0 +1,55 @@
+# The Upper Scripture of the Transformation of Forms, Concealment of Light, Ascension, and Preservation of Immortals of Shangqing
+
+Title: The Upper Scripture of the Transformation of Forms, Concealment of Light, Ascension, and Preservation of Immortals of Shangqing. The author is unknown, probably composed during the Northern and Southern Dynasties. It treats of the arts of preserving spirit, concealing form, and flying as immortals. One scroll. The original source: The Orthodox Daoist Canon, Zhengyi Division.
+
+The Upper Scripture of the Transformation of Forms, Concealment of Light, Ascension, and Preservation of Immortals of Shangqing
+
+The Central Yellow Lord, receiving from the Emperor of the Supreme Subtle Heaven the transformation of forms, concealment of light, and ascension to the Jade Pure Upper Scripture, preserves the Eight Lights to move the body, contemplates the Five Clouds to ascend the form, employs the Purple Degrees to summon the Void, directs the Fiery Radiance to call forth the Spirits, returns through the Three Mornings to the profound influx, draws the primal essence of the Seven Dippers, establishes the Lunar Mechanism in the sleeping chamber, and accumulates divine responses within the silent court. Since the Golden Book of the Eastern Flower, the mysterious pattern and jade name, no one hath been able to open and peruse the scrolls of the High Emperor.
+
+All who cultivate the Way of Concealed Light, at each of the Eight Seasonal Nodes, when the Eight Emperors convene, bathe in orchid fragrance, purify their fast in secluded chambers, enter the room and sit in stillness, face forward and cherish the thought of the Subtle Azure Emperor, named Lu Fengzi, who dons the golden flowery supreme mysterious crown, wears a robe of cloud-light brocade, girds himself with the talisman of the Nine Radiances passing through the Yang Cloud, rides the carriage of one scene of Eight Pale Purple Clouds, and bestows upon me the Great Morning Hidden Talisman of the Nine Glories; with cloud vapour covering my crown and body, I feel my form ascend with the light, knocking my teeth twenty-four times in communication, swallowing breath eight times, then stopping.
+
+Next, I cherish the thought of the Central Subtle Red Emperor, styled Ding Guangyan, who wears the crown of Two Pale Treasures in One, robes of cloud-light brocade, girds with the talisman of the Four Bright Vermilion and Jade of the Primal Morning, rides the carriage of two scenes of Seven Pale Crimson Clouds, and grants me the Hidden Talisman of Observing Clouds of the Primal Morning; with cloud vapour covering my crown and body, I feel my form ascend with the light, knocking my teeth nine times, swallowing breath nine times, then stopping.
+
+Next, I cherish the thought of the Purple Subtle White Emperor, styled Liang Yuanshi, who wears the crown of the Lotus, robes of mysterious spirit brocade, girds with the talisman of the General Morning Bright Spirit Supporting the Subtle, rides the carriage of three scenes of Six Pale Red Clouds, and grants me the Hidden Talisman of the General Morning of the Nine Extremes; with cloud vapour covering my crown and body, I feel my form ascend with the light, knocking my teeth eleven times, swallowing breath six times, then stopping.
+
+Next, I cherish the thought of the Mysterious Subtle Black Emperor, styled Qi Yuanxuan, who wears the crown of Nine Primal Guests, robes of mysterious cloud brocade, girds with the talisman of the Overlapping Radiant Spirit True Xiao Phoenix, rides the carriage of four scenes of Five Pale Blue Clouds, and grants me the Hidden Talisman of Overlapping Radiance of the Rotating Root; with cloud vapour covering my crown and body, I feel my form ascend with the light, knocking my teeth nine times, swallowing breath five times, then stopping.
+
+Next, I cherish the thought of the Original Subtle Supreme Emperor, styled Jie Kongzi, who wears the crown of Mysterious Light Guest, robes of cloud-light brocade, girds with the talisman of the Mysterious Light Central Primal Eightfold Jade Gate, rides the carriage of five scenes of Four Pale Yellow Clouds, and grants me the Hidden Talisman of the Mysterious Light Morning Peace; with cloud vapour covering my crown and body, I feel my form ascend with the light, knocking my teeth twelve times, swallowing breath four times, then stopping.
+
+Next, I cherish the thought of the Spiritual Subtle Central Emperor, styled Kang Ewen, who wears the crown of Distant Travel, robes of green brocade patterned, girds with the talisman of Combined Radiance Mysterious Glow, rides the carriage of six scenes of Three Pale Green Clouds, and grants me the Hidden Talisman of Combined Radiance Morning Fate; with cloud vapour covering my crown and body, I feel my form ascend with the light, knocking my teeth twelve times, swallowing breath three times, then stopping.
+
+Next, I cherish the thought of the Proclaiming Subtle Lower Emperor, styled Hong Fuzi, who wears the crown of Three Treasures Spirit, robes of single brocade patterned, girds with the talisman of Equal Radiance Preserving Bright Spirit, rides the carriage of seven scenes of Two Pale Purple Clouds, and grants me the Hidden Talisman of Equal Radiance Morning Mystery; with cloud vapour covering my crown and body, I feel my form ascend with the light, knocking my teeth nine times, swallowing breath twice, then stopping.
+
+Next, I cherish the thought of the Penetrating Subtle True Emperor, styled Si Dengshu, who wears the crown of Flying Cloud and Purple Flower, robes of mysterious spirit brocade, girds with the talisman of Primal Fate Preserving Form Mysterious Radiance, rides the carriage of eight scenes of One Pale Spiritual Cloud, and grants me the Hidden Talisman of the Lofty High Dragon Smoke; with cloud vapour covering my crown and body, I feel my form ascend with the light, knocking my teeth thirty-six times, swallowing breath once, then stopping.
+
+Next, I cherish the thought of the Inner Nine Subtle Emperor, styled Shen Mingxian, who wears the crown of Purple Primal Three Treasures, robes of mysterious cloud brocade, girds with the talisman of Morning Dawn Eightfold Transforming Flying Palace, rides the jade carriage of Great Rosy Clouds and Purple Smoke of Penetrating Light, comes to bestow upon me the Hidden Talisman of the High Clear Great Origin Limitless Supreme Way; with the carriage of Penetrating Light coming to receive my person, I ascend to the chamber of Jade Pure. All is complete, I knock my teeth thirty-six times, and pray thus:
+
+'O Eight Lights and Mysterious Smoke, scatter the qi of the void court, cover my body with the nine clouds, conceal the light in the dark and hidden, let the precious talisman descend mysteriously, ride the green chariot, return through the nine mornings, dwell in my form, ascend to the jade chamber, and pay homage to the Purple Court.' When ended, I swallow breath thirty-six times, then stop.
+
+Next are the Nine Star Emperor Lords:
+
+The First Star Emperor Lord, transformed and concealed as the Inner Consort of the Peach Origin of the Dipper, named Taiyi Fatan, styled Xingzhengfu, wears a yellow brocade cape and red and blue flying skirt, with a drooping cloud coiffure.
+
+The Second Star Emperor Lord, protector of the fetus and transformer of forms, Inner Concubine, named Taiyi Sanpeng, styled Luo Zhuying, wears a blue brocade cape and green-feather flying skirt, with a drooping cloud coiffure.
+
+The Third Star Emperor Lord, of the Six Escapes and Seven Stars, Upper Origin Mother of Elixir, named Taiyi Yunyi, styled Chong Shuangzhao, wears a blue brocade cape embroidered with feathers and a splendid skirt, with a drooping cloud coiffure.
+
+The Fourth Star Emperor Lord, concealed light hidden in the Central Origin Inner Consort, named Taiyi Qilie, styled Qiu Hengying, wears a purple brocade cape and yellow-feathered skirt, with a drooping cloud coiffure.
+
+The Fifth Star Emperor Lord, transformed body and changed light, Great Daughter in the Dipper, named Taiyi Yushu, styled Chou Qiulan, wears a vermilion brocade cape and purple-blue flying skirt, with a drooping cloud coiffure.
+
+The Sixth Star Emperor Lord, concealed traces and scattered forms, Middle Daughter in the Dipper, named Taiyi Qijing, styled Baodingling, wears a vermilion brocade cape and blue embroidered flying skirt, with a drooping cloud coiffure.
+
+The Seventh Star Emperor Lord, divided light and myriad forms, Young Girl in the Dipper, named Taiyi Douyi, styled Tianfanshu, wears a cinnabar brocade cape and blue floral feather skirt, with a drooping cloud coiffure.
+
+The Eighth Star Emperor Lord, transformed sun, moon, water, and fire, High Queen Left Consort in the Dipper, named Taiyi Shiqizhu, styled Luomao Hua, wears a purple brocade cape embroidered with feathers and flying skirt, with a drooping cloud coiffure.
+
+The Ninth Star Emperor Lord, transformed metal, stone, mountain, and river, High Queen Right Consort in the Dipper, named Taiyi Aitiao, styled Yun Yu Xuan, wears a green brocade cape and emerald feather flying skirt, with a drooping cloud coiffure.
+
+I cherish the nine star Emperor Lords, concealed consorts of the Nine Yins, their forms, colours, and vestments all bright and clear, descending from the Northern Dipper, their fiery radiance flowing and shining, brilliantly lighting the void and non-being, revolving spirits mystically reflecting, entering my body, dwelling within the Bright Hall, in the purple chamber, flanked by the two images of sun and moon, the radiance of the nine mornings arranged in order, successively transforming into infants, the true forms of the Nine Emperors, named the Immutable Children, resting in the portentous body, thoroughly transparent within and without, fiery radiance mystically reflecting, circulating through the body with heat, again knocking my teeth nine times, and praying thus:
+
+'Nine Mornings return to the summit, conceal and transform the primal square, penetrate the nine origins of Heaven, the true children in the Dipper, fiery radiance mystically reflecting, spreading through the purple chamber, changing a thousand and ten thousand times, altered light of infantile obscurity, going wherever the will directs, going out without coming in, obtaining the ride of the Eight Lights, ascending to pay homage to the Emperor Sovereign.' When ended, I swallow breath nine times, then stop.
+
+This is the Upper Scripture of the Nine Yin Emperor Lords’ transformation of forms and concealment of light. The Central Yellow Lord, Southern Red Spirit Lord, Eastern Blue Youth Lord, Northern Supreme Lord, Western Great Essence Lord, all revolve the Nine Yin to scatter forms, move the Nine Mornings to conceal the body, cast flying wheels to ascend the void, ride the mysterious sky to roam and wander, manifesting myriad transformations of the light, following the world’s sinking and floating, as if moving portents, with the Three Lights resting simultaneously.
+
+The Upper Scripture of the Transformation of Forms, Concealment of Light, Ascension, and Preservation of Immortals of Shangqing

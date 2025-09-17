@@ -1,0 +1,287 @@
+# The Collection of Scriptures of the Golden Roots in the Purple Scripture of the Essential Azure of the Supreme Clarity of the Perfected Cavern
+
+Scripture Name: The Collection of Scriptures of the Golden Roots in the Purple Scripture of the Essential Azure of the Supreme Clarity of the Perfected Cavern. The compiler is unknown; it is roughly ascribed to the Eastern Jin dynasty. It belongs to the early and important scriptures of the Supreme Clarity sect. Two scrolls. Source text: The Daoist Canon in the Zhengyi Section.
+
+The Collection of Scriptures of the Golden Roots in the Purple Scripture of the Essential Azure of the Supreme Clarity of the Perfected Cavern
+
+Compiled by the Prime Minister Azure Youth Lord
+
+### Volume One of the Collection of Scriptures of the Golden Roots in the Purple Scripture of the Essential Azure of the Supreme Clarity of the Perfected Cavern
+
+The Azure Essential Emperor Lord is a disciple of the Nine-Yang Primordial Emperor Jade Sovereign, born in the first year of the Middle Sovereign, in the eastern quarter, when Heaven first proclaimed brightness. The Lord was nurtured in the Mysterious Hill Jade Kingdom, in the limitless Heaven, beneath the Seven Treasures of the Jade Forest, beside the borders of the Nine Regions in the Mysterious and Obscure. By the law of transformation and response, at the third daybreak, his surname was Yao, his given name was Bo-kai. Beside him stood the Lord of Nine Dragons with Wings; seven-coloured jade phoenixes shaded his person; divine scales contained the Ganoderma for mysterious nourishment; heavenly maidens emitted essence to observe the true; jade youths cast blossoms to repel filth; divine consorts scattered fragrance to dispel dust; he held breath in gestation. His law was naturally elegant; he wore a floral crown of two-six; his face and hair were like golden splendour; his body bore spirit talismans; his speech was like golden edicts; seventy-two colours shone, reflecting the jade purity; three dawns revealed lovely scenes; six vital airs were in harmony. A mysterious cloud with a purple canopy arose from his chamber; flying essence and streaming light illuminated his courtyard; he alone held the true in his control, serene and joyous in spirit, orderly and harmonious in appearance, following the changes of rise and fall. He dwelt in the bright realm of the morning clouds, wandered the ruins of the jade kingdom, holding the strategy of the Primordial Emperor, settled upon the hill of the nine regions at sunset.
+
+Carefree and wandering, passing through countless kalpas, he returned to the pure fasting cloud chamber, with purple clouds as roof, azure mists as walls, golden halls, white jade beds, where five vital airs intermingled, high terraces connected by eaves, jade steps with inscriptions, four phoenix towers, golden youths attending, jade blossoms holding scarves, celestial maidens arrayed in protection numbering over five thousand, ready for Heaven’s hunt; feathered riders in multitudes like scales; dragons and tigers warding off evil, pair by pair crouching; the nine assemblies of mysterious qi, spiritual winds raising smoke, fragrant scents stirring Heaven, a palace born of emptiness, flowing essence and jade light, reflecting ten Heavens, lofty and serene, independently composing spiritual chapters, consuming essence, swallowing qi, chewing the mysterious root, taking elixirs and returning to white jade wine, golden liquid flowing essence, jade forest forming blossoms, sun and moon as imperial springs, refining bones and changing marrow, the whole body becoming true.
+
+The Primordial Yang Emperor Jade Sovereign at that time rode a carriage of nine phoenixes in blue mist, jade wheels and feathered canopy, following the thousand true桑林, ten thousand chariots and myriad riders, flying with thirty-six attendant immortals, feasting in the celestial court, descending to the Lord. Together ascending the capital of the nine elder immortals, the chamber of nine twists, ordering the Western Platform’s Turtle Mother to open the clouds and phoenix’s mystery, a purple brocade pouch, producing the purple scripture of true formulas and jade chapters to entrust to the Lord. The Lord cultivated the path completely, attaining the jade clarity rank, the Supreme Great Dao Lord bestowed upon him the flying cloud feathered canopy, flowing purple phoenix edicts, golden true jade light illuminating the seven primordial golden divine tiger talisman, flowing golden fire bells, azure essence jade seal, nine-coloured seamless emblem, single azure feather skirt, flying and ascending Supreme Clarity.
+
+Thus he freely displayed myriad changes, revolving five dawns, directing emptiness and summoning the moon, capturing the sun and raising the wheel, transforming through the cavern, sharing spirit with the true, resolving form and altering shape, countless beings revered, ascending the three origins, paying homage at the jade palace, roaming the limitless, descending to the nine Heavens, entering and exiting the cavern gate, carrying contracts with jade immortals, reverently responding to the High Supreme Primordial True, harmonizing qi and obeying destiny, holding the position of Emperor of the Dawn, commanding myriad Dao, all immortals connected to him, governing the spirits of the Ten Heavenly Mountains, rivers and sources, Five Peaks and Four Seas, none not subject to the Lord. Always flying on the usual plan in the purple void, with golden name in the azure palace, the purple scripture cannot be seen, the golden root cannot be heard.
+
+Azure Essential is another title of the Purple Clarity Emperor Lord, who received from the Primordial Emperor Jade Sovereign the wonderful secret formulas of the purple scripture, which are all essentials of the collection of scriptures, secret above the nine Heavens, recording concealed writings of the eight assemblies. The Jade Sovereign commanded the High Supreme Worthy True Lord to compile and collect the precious titles and compose the collection of scriptures, written with a purple brush, bound in golden orchid covers, all arising from the Way of the Supreme Emperor of Ancient Mystery, composed by the High Sage, collected into volumes, transmitted to the Azure Essential Emperor Lord, who transmitted to the Supreme Virtual Primordial Spirit Lord, who transmitted to the Supreme Primordial Lord of Great Essence and Luminous Cavern, who transmitted to the Northern Pole Supreme Primordial Lord, who transmitted to the Jade Sovereign Lord, who transmitted to the Supreme Celestial Emperor Lord of the Great Subtlety, who transmitted to the Later Sage Nine Profound Emperor Lord, who transmitted to the Prime Minister Azure Youth Lord, who holds the registers in the jade palace. Those with predestined fate and responses seeing this text are assuredly of profound excellence and must have divine immortals to confirm their registers. The Jade Sovereign’s precious secret is not transmitted to the world; those who falsely speak of it are pierced by the nine Heavens’ spies and reported to the Emperor Lord, charging the offender with crime; the Supreme Lord dispatches the five Emperor Divine Soldiers to punish the body; death as a lowly ghost, filling rivers and sources; seven ancestors suffer water torment. Students should be careful and observe secrecy and reverence. If one has golden bones and jade marrow, with the imperial records of the name, upon seeing this text, one must follow the Nine True Profound Formulas, cultivate the method and discipline, bind the oaths and convey trust, each with a golden dragon and a jade fish token, a purple sash a hundred chi long, azure woven cloth forty chi long, to bring before a scripture master for transmission. The master and disciple must meditate together for seven hundred days, according to the formula seven hundred years there are those who receive the three transmissions. Those who do not follow the formula text, lightly reveal secret chapters, their bodies perish under the ghost officials, seven ancestors bear responsibility, no immortality is granted.
+
+All who cultivate the Way of Supreme Truth recite the Yellow Court Jade Radiance ten thousand times as root, penetrate the three palaces, open and illuminate secret passes, then gain the practice of the Purple Scripture Jade Formulas, summoning the true and inviting spirit, ascending the white sun in the mysterious method.
+
+The Purple Scripture Formula says: All who cultivate the Way of Supreme Truth should act according to the Supreme Clarity Jade Mist Purple Luminous Inner Viewing highest method. Always on the first ten days of birth in one’s original life, bathe and fast purely, don clean ritual garments; at dawn enter the chamber, use the Inner Viewing to open the illuminating jade talisman; wash eyes with pure and splendid water facing east, rinse mouth and belly, cleansing inside and outside to emptiness and purity; the mouth has no residual taste, the belly no leftover scent, the eyes no residual sight, the body no lingering dust; calm and silent, the only body is the Dao. Then turn to face south, sit level and close eyes, inwardly think the purple qi issuing from the crown of the head, surging to the heavens, qi crowning one’s form, inner and outer gloomily concentrated. Then lead the purple qi, swallow upwards thirty-nine times, feeling heat, following the swallow into the mouth and belly. After swallowing, open eyes, clear and wide, then knock teeth three times, recite aloud:
+
+Supreme Clarity flowing mist, brightness true and auspicious dawn, purple clouds reflect spirit, yang accumulates and interchanges brilliantly, internally descending golden gate, jade door receives observation, precious spirits harmonize and contain, soul and spirit do not disperse, bright sovereign nine truth, eight Dao flowing and longing, climbing clouds summoning emptiness, spirit descends purple river, penetrating the secret origin, three dawns feast together, roaming and soaring jade hall, paying homage at the imperial residence.
+
+Finished, swallow upwards three times and stop.
+
+This Inner Viewing illuminating jade talisman is to be written with vermilion on white paper, thrown into water, facing east knock teeth three times, reciting the spell:
+
+Heaven has no flying shadows, earth no wandering dust, jade talisman cleanses filth, washes away falsehood, penetrates and illuminates the mysterious void, summons and brings forth spirit immortals.
+
+Finished, wash eyes and rinse mouth with water, instruct inside and outside, all remaining talisman water is to be released flowing eastward.
+
+The Purple Scripture Formula arises from the Supreme Clarity Jade Mist Purple Luminous Inner Viewing Scripture middle chapter. Cultivate it eight years, purple clouds cover the body, eyes become clear and penetrating, observing the nine heavens, the body produces strange light, myriad changes unfold, flying in the great void. This Way is most wondrous, transmitted only to perfected persons, not practiced in the world. There is a golden-named mysterious chart, green script of the Eastern Splendour; those who possess this text hold it secret and cultivate it reverently; the true spirit easily responds, summoning immortals easily accomplished, the Dao complete and qi full, ascending in broad daylight. Be careful not to lightly transmit, lest the secret be revealed.
+
+The first ten days of birth means the ten days of the Jiazi cycle; one must take the day of Jiayin as the first ten days, others follow likewise.
+
+The Purple Scripture Formula says: To cultivate the Supreme Clarity Jade Mist Purple Luminous Inner Viewing Way, always on the first day of the month of birth, take three sheng of western flowing water, contained in a golden vessel, copper vessel is also good, add one liang of true vermilion inside, called the golden essence stone-view water-mother jade fetus brightness, exposed in the central courtyard. At the fifteenth day of the month at midnoon, let the sun essence light mysteriously reflect upon the stone-view water-mother, the sun image shines brilliantly within the water-mother. Facing east, write the flowing mist illuminating inner viewing jade talisman, throw into the stone-view water-mother, turn south, knock teeth sixteen times, call aloud:
+
+Sun soul pearl brightness fetus robe green reflection returning mist red youth mysterious flame storm image, altogether sixteen characters.
+
+Finished, close eyes, retain the five-coloured flowing mist in the sun, lower crown on the body, illuminate one form, retain seeing in the sun a certain immortal, shape eight cun long, wearing a vermilion sun red crown, clothed in crimson brocade and cinnabar skirt, below on the crown of the body, mouth leads the red cinnabar golden essence stone-view water-mother reflection, irrigating the shape, then present in the water vessel the brightness of the sun; softly recite the spell:
+
+Radiant net of cinnabar sun, primordial brightness displayed, red furnace great light, nine qi unite truly, three five transport essence, two images entwined, jade embryo stone marrow, refining old to new, flowing mist mysterious injection, water mother condenses spirit, harmonizing soul softening spirit, inside and outside with smoke alike, upwards consuming cinnabar blossoms, mouth sipping sun root, spirit Ganoderma overflowing, face issues golden immortals, united with qi body, existing with the sun, riding brightness flying through the void, ascending to Emperor Dawn.
+
+Finished, facing the sun swallow sixteen times and stop. Take the stone-view water-mother brightness, wash eyes facing the sun, bathe the body, remaining water is released flowing westward. Cultivate this nine years, the face has golden appearance, inner and outer penetrate, shining with the sun’s light, flying and riding mysterious void, ascending and arriving at the sun gate. This Way is sublime and wondrous, not transmitted to later generations, lightly revealing the precious text is punished by ghost soldiers, body perishes under ghost officials, seven ancestors suffer misfortune.
+
+This flowing mist illuminating inner viewing jade talisman, on white paper facing east with vermilion, knock teeth twelve times, recite:
+
+Sun nine paths, eight truths equally bright, three five revolve and transform, mingled cinnabar spirit, stone-view jade embryo, vermilion cinnabar essence, gather and accept flying mystery, come descend on my form, long with three dawns, born and dying together.
+
+Finished, throw the talisman into the stone-view water-mother.
+
+The above Supreme Clarity Jade Mist Purple Luminous Inner Viewing highest method is also called Golden Essence Stone-view Water-mother Jade Embryo Scripture, or the method of gathering and wearing sun root to summon mist. The Emperor Lord’s constant treasured secret, written with purple brush, golden orchid as slips, sealed in the chamber of the Supreme Nine Elder Immortals, the jade palace jade chamber. According to the formula, produced once every seven hundred years, there is a golden named mysterious chart, green script Supreme Clarity; those who see this text, the Emperor sends twelve golden youths to attend and guard the person. Cultivating nine years, one attains the upper immortal, ascending in broad daylight, roaming the jade palace of the dark.
+
+The Purple Scripture Formula says: To cultivate the Supreme Clarity Jade Mist Purple Luminous Inner Viewing Way, the method of ascending in broad daylight, always on the third day of the month of birth, take three sheng of the eastern well imperial blossoms’ essence, called well blossom water. Contain it in a golden vessel, copper vessel is also good, expose in the central courtyard. At the sixteenth day of the month at midnight, let the moon essence light mysteriously reflect on the imperial blossom cinnabar image, penetrating the imperial blossom. Facing east, write the yellow qi yang essence illuminating spirit talisman, throw into the imperial blossom vessel. Turn west, knock teeth twenty-four times, call aloud:
+
+Moon soul warm flute fragrance brilliant veil distant graceful void spirit orchid luxuriant blossom cluster elevated calm gold pure camp brightness countenance standard, altogether twenty-four characters.
+
+Finished, close eyes, retain the five-coloured flowing essence purple light in the moon, lower crown on the body, illuminate one form, retain seeing in the moon a certain true person, shape nine cun long, wearing a purple crown, whole body clad in yellow brocade flying skirt, below on the crown of the head, mouth leads the moon imperial blossom to irrigate and excite the shape, then present in the imperial blossom vessel the reflected moonlight; softly recite the spell:
+
+Spirit relax bright glory, three five illuminate clearly, purple and yellow mutually descend, two qi mixed together, heavenly origin separation and union, motion measures deficiency and fullness, imperial Ganoderma flowing overflow, yellow fetus forms essence, image among true persons, moulding and irrigating my form, moon lord and consort firmly my yellow calm, jade pendants and golden bells, make me thoroughly clear, with moon together waning, with moon together living, long consuming imperial blossom, ascending into imperial court, floating and roaming the great void, directing flying wheels, enjoying the boundless, eons of thousands of ages.
+
+Finished, facing the moon swallow twenty-four times and stop, take imperial blossom, wash eyes facing the moon, and bathe the whole body. Finished, all remaining water is released flowing eastward. Cultivate this nine years, eyes see through emptiness, thoroughly observe ten thousand li, reverse examine auspices and inauspices, refine and simplify body, face has jade essence, body emits purple light, riding the void, flying in Supreme Clarity. This Way is most subtle and wondrous, not transmitted to later generations, lightly revealing the precious text is punished by spirit soldiers, body perishes in the dark springs, calamity flows for ten thousand generations, long serving ghost officials.
+
+This yellow qi yang essence illuminating spirit talisman, written in yellow brush on blue paper facing east, knock teeth twelve times, recite:
+
+Yang conceals Yin gives birth, two qi interweave, heavenly origin mixed, three five respond to talisman, wear and master imperial blossom, spirit descends on my form, long enjoy bright qi, rest together with spirits, descend to nine mysteries, assist and drive flying and floating.
+
+Finished, place talisman in imperial blossom.
+
+The above Supreme Clarity Jade Mist Purple Luminous Inner Viewing highest method, also called Hidden Heaven Secret Moon Jade Embryo Scripture, or the Eight Essential True Scriptures of Wearing the Moon Imperial Blossom. The Emperor Lord’s constant treasured secret, written with purple brush, golden orchid as slips, sealed in the chamber of the Supreme Nine Elder Immortals, the jade palace jade chamber. According to the formula, produced once every seven hundred years, there is a golden named mysterious chart, green script Supreme Clarity; those who see this text, the Emperor sends twelve Western Blossom Jade Maidens to attend and guard the person. Cultivating nine years, one attains the upper immortal, ascending in broad daylight, roaming the imperial court. All who practice this Way, before three days have passed, constantly bathe with orchid fragrance, fast purely in a separate chamber, do not engage with worldly affairs, silently contemplate the true spirit, facing the morning of the bright sky, at the day of practice seeing the imperial countenance, accumulating feeling and emulating, gaining the day’s transformation into immortals. If the sky is overcast and there is no sun, one may also practice in the chamber by contemplation; the Way lies in pure thought, so one responds and attains.
+
+The Purple Scripture Formula says: To cultivate the Way of Supreme Truth, on the third, ninth, and twelfth months’ third, fifteenth, and twenty-fifth days, three days in the year, the month is the month of transformation by the Primordial Father of the Nine Heavens, the day is the time of feasting in the Nine Heavens’ highest palace assembly. Each such day, bathe and fast purely in a quiet place, away from worldly affairs, facing northeast above, look up to Heaven and think of the Nine Heavens Primordial Father’s name, body length nine cun nine fen, wearing black yellow pure spirit ribbon, head wearing the seven-fold vermilion jade cap, dwelling above the Nine Heavens, in the Tai Chi jade palace jade treasury, in the Dan Spirit village cave origin lane. At that time riding a blue mist flying carriage, following twelve flying dragons, twenty-four immortals, aiding the chariot and attending the wheels, roaming above the mysterious void, in the limitless. Retain clear thought, as if facing the countenance, then bow nine times to the Primordial Father, call three times in the shadow to summon the Primordial Father, “I, Jia, now have words, beg to ascend, serve the imperial spirit.” Knock teeth nine times, recite:
+
+High Supreme Emperor Lord, Primordial Great God, united true lineage qi, form elegant purple Heaven, riding clouds and floating chariots, setting sun and eight mists, revolving wheels and curving descent, Dao protects my body, may I ride the dawn brightness, serve the spirit chariot, today the eight assemblies, above wish to open and display, all requests and openings, none not as spoken, long enjoy primordial auspiciousness, exist with the Emperor.
+
+Finished, swallow nine qi upwards and stop. Thus the Primordial Father is pleased, the Emperor Supreme rejoices, immediately commanding to lead immortals and children of the golden name. After nine years’ pure thought, he sends the jade carriage down to receive the person, ascending in broad daylight, ascending to the imperial dawn. This Way is most wondrous and subtle, not to be heard by worldly learners. Without the golden named mysterious chart, green script Supreme Clarity, none can know or see. If by opportunity one meets the precious chapters, all are destined to join immortals; but they must keep the precious records secret and cultivate them. Lightly revealing is not true, the crime extends to seven ancestors, closing the hells, no restoration for ten thousand kalpas, body perishes under ghost officials, none may attain immortality.
+
+The Purple Scripture Formula says: All who cultivate the Way of Supreme Clarity, on the fifth, sixteenth, and twenty-ninth days of the second, seventh, and tenth months, three days in the year, these months are the months of the Nine Heavens Mysterious Mother’s union and transformation to give birth, the days are the days of celebration for the union of the Heavenly Origin, changing the female Heavenly Virtue. On these days, bathe and fast purely, in a separate quiet chamber, away from worldly affairs; at midnight expose the court, facing southwest, look up to Heaven and think of the Nine Heavens Mysterious Mother’s name, body length six cun six fen, wearing green precious spirit light brocade frost gauze of nine colours, head wearing purple origin black yellow precious crown, dwelling above the nine qi limitless, in the palace of jade forest seven reflections, jade treasure cave origin treasury, nine lights district Supreme Clarity lane. At that time riding purple cloud flying essence feathered canopy, following twelve phoenixes, thirty-six jade maidens, aiding the phoenix attending immortals, roaming above the Great Clarity, in the limitless. Retain clear thought, bright and facing ahead, then bow nine times to the Mysterious Mother, call three times in the shadow to summon the Mysterious Mother, “I, Jia, impure in substance and greedy for truth, admire Supreme Clarity, beg to have connection, gain to serve the jade spirit.” Knock teeth nine times, recite:
+
+Three union five separation, mixed and transformed two origins, qi condenses into spirit, spirit changes and unites soul, embryo nourishes the nine heavens, protects and guards the gate of birth, yin essence mysteriously descends, sifting and irrigating the source of form, refining substance and stained qi, receiving transformation naturally, today what day, Mysterious Mother opens and displays, eight vows nine assemblies, above obtains heavenly truth, brightness reverberates and participates in subtlety, gains opening of jade dawn, bones soar and flesh flies, riding the void weaving smoke, ascending the purple chariot, long assisting the imperial minister.
+
+Finished, swallow nine times upwards and stop. Thus the Mysterious Mother is pleased, the divine consort rejoices, heavenly truth descends, one sees the spiritual countenance, immediately commands the azure palace to note the upper jade name. After nine years’ pure thought, the Emperor sends jade maidens riding clouds down to receive, ascending to jade clarity, attending and guarding the mysterious palace. This Way is most wondrous and subtle, unheard in the world, if there is golden name inscription and purple slips, upon seeing the secret text, the bones respond to immortals, precious and secret, counted days to become immortal. Lightly revealing is not true, punished by spirit soldiers, long serving in dark springs, seven ancestors bear burden, no restoration for ten thousand kalpas.
+
+The Purple Scripture Formula says: The Way of the Sun’s Radiance in the Mysterious, always on the days of Bingwu and Gengwu, at midday, use a bright mirror nine cun in diameter, expose it in the central courtyard, let the sun essence light reflect within the mirror, the body facing south, looking into the mirror, knock teeth twenty-four times, recite:
+
+Sun essence shining net, flowing light reflecting spirit, splendid rays eight bright, weaving through heavenly court, passing through the response to destiny, jade embryo full, mysterious light youth, sun radiance red essence, returning true curved reflection, stopping at noon illuminating, golden mirror gathering mist, mingling and uniting my form, two images matching, alongside the sun, eighty-one breaths, stomach stores blossom life, long preserve sun and moon, heaven and earth incline mutually.
+
+Face heaven, mouth guides sun light, swallow thirty-six breaths upwards. Finished, return to face the mirror, again swallow the sun essence in the mirror forty-five breaths. Finished, again combine eighty-one breaths. This is the Way of the Sun’s Radiance in the Mysterious. Practiced three years, the youth in the eyes has flowing purple jade light, thoroughly sees ten thousand li, unlimited illumination, face like cinnabar, body radiates golden splendour, practice reaches sun shadow, as if flying riding the void. This jade emperor’s supreme method was transmitted to a Lu woman, who gathered essence to ascend the jade court. Its method is precious and secret, must not be lightly transmitted; transmitted to those not proper, calamity affects seven ancestors, body serves low ghosts, no immortality granted.
+
+All who cultivate the Way of the Sun’s Radiance in the Mysterious, if the sky is overcast and no sun is seen, may also practice in a separate chamber, but swallow qi double that of midday, to eighty-one breaths. The mirror must be kept clear and bright, no dust or filth allowed, no one else may use the mirror, this is the greatest taboo. If three persons view the mirror, then the youth of the sun and the two red essences descend, causing loss of sight and spirit, beware carefully.
+
+This method is often practiced by the Queen Mother of the West, who taught it to the Azure Essential Emperor Lord, who taught it to the Lu woman, who transmitted it to the Sun Maiden. The Sun Maiden practices it constantly in the world, penetrating the mysterious void, face issuing golden light, aged seven hundred years, the years of harmony, people call her seventeen or eighteen. She often rides flying phoenixes to roam the world, also watching over those on the Way, sometimes descending with true qi, those with predestined affinity sometimes meet and awaken to it, gaining connection to true form, then can fly.
+
+The Purple Scripture Formula says: On the day of the new moon assembly, when the two qi of heaven and earth cross and interweave, the yin qi surges and the yang essence declines. On that day, within one hour, heaven commands troops, myriad true beings assemble at the pavilion, five stars move their positions, ten heavens vibrate together, to cultivate the Way of the Sun’s Radiance in the Mysterious. On that day, expose the courtyard, take clear water in a jar, the body holding a sword, face water and face the sun, knock teeth thirty-six times, call aloud:
+
+Sun radiance youth, yang light red essence, shining net true person, shadow within jade spirit, passing through destiny riding qi, up and down solemnly clear, yin officials plotting within, invading the sun court, heaven commands troops, imperial ministers aiding soldiers, three five standing upright, yang light illuminating clearly, heaven and earth feeding in turn, who dares to act, all return to their places, no harm to deficiency or excess, jade emperor commands, none not reverent and still.
+
+Finished, then swallow twenty-four breaths upwards and stop. Thus heaven and earth restore their places, three five shine together, the youth is pleased, sun radiance returns spirit, flowing light mysterious injection, moulding and descending the body, then register the name in the purple slip, record in the jade clarity chapters, within nine years, one obtains to ride the green carriage, riding the void and empty, flying in Supreme Clarity.
+
+The Purple Scripture Formula says: On the day of a lunar eclipse, that evening the yin qi declines, yang qi fills, divisions add, two images oppose, these are all heaven and earth’s separation and union of sun and moon qi. Riding on the evening of the moon’s decline, invading and plotting against the true qi. At that time, the five stars and constellations of the imperial dawn division command the troops of the moon’s department. On that evening, go out to the courtyard, take a jar of clear water, the body holding a sword, face water and face the moon, knock teeth sixteen times, call aloud:
+
+Heaven and earth separate and unite, bearing qi riding decline, invading and consuming the moon’s abode, up affecting yellow brightness, imperial ministers wield staves, jade dawn capturing falsehood, heavenly soldiers surrounding the domain, divine lords displaying power, who dares to act, attaching to shadow riding on subtlety, quickly return to original place, no violation allowed.
+
+Finished, three times facing the moon recite the spell thus, with the sword turning three times in the jar of water and stop, at the water summon qi, swallow sixteen breaths upwards. Finished, the lunar eclipse dissipates, heavenly brightness is clear, three five shine together, myriad palaces are peaceful. The moon middle true person consort’s spirit light is pleased and joyful, returning spirit mysterious reflection, descending to the person’s emotions, then record to the Northern Emperor, register the person’s death name, note in the Supreme Clarity palace jade chapters, provide twelve jade maidens to attend the person. Nine years thus, obtain to ride flying mist, ascending to the moon court. This Way is most wondrous and subtle, not practiced in the world, those who obtain it hold it secret, carefully transmitting. This Emperor Lord Purple Scripture highest method was practiced by Wang Lingzi, whose neck often issued purple light, illumining ten li about, eyes had flowing essence, like stars shining, face issuing golden splendour, blazing at night the void brightness, commanding twelve golden youths of the sun and twelve jade maidens of the moon. Its method is most secret, must not lightly transmit. If the sky is overcast and the sun and moon unseen, also practice indoors, but on this day the secret plotting is hidden, must be rescued in proper brightness.
+
+The Purple Scripture Formula says: All who cultivate Supreme Clarity Way, but cannot yet soar to the bright sky court, nor ride the purple void, yet desire to study, though relying on secluded hills, long fasting and remote forests, still cannot escape the calamity of the Yang Nine, inherited in the Tang years.
+
+The Primordial Heavenly King’s Disaster-Delivering Treasure True Jade Talisman is able to prevent this calamity. This talisman was born with the nine Heavens, existing with sun and moon, crossing vast springs without sinking, treading fierce fire without burning, passing through sharp blades without harm, living ten thousand years and then transcending. Wearing it nine years, the form changes and face alters, body produces strange light, rides the void flying, ascends Jade Clarity. Following the Four Poles Bright Formula, appears once every seven hundred years, with golden name and jade characters, purple slips and azure palace; hears the three transmissions. Lightly revealing is not true, body perishes under ghost officials, seven ancestors suffer torment, long closure of the dark springs, no restoration for ten thousand kalpas.
+
+The Great Hundred and Sixty Disaster-Delivering Treasure Life-Preserving Talisman
+
+The above Primordial Nine Profound talisman, through the solar assembly, when great floods overwhelm the heavens, is to be written in blue on white silk, worn on the head, floating above clear waves, ten thousand disasters cannot injure, preserves body and lifespan, long wearing grants immortality.
+
+The Lesser Hundred and Sixty Disaster-Delivering Treasure Life-Preserving Talisman
+
+The above Nine Heavens Supreme True talisman, through the lesser Yang Nine cycle, when water and fire cross and contend, ten thousand disasters occur, is to be written in vermilion on white silk, worn on the left elbow, entering abyss without sinking, entering fire without burning, ten thousand disasters cannot harm, preserves body and lifespan, lives with Heaven, long wearing grants immortality.
+
+The Great Hundred and Sixty Disaster-Delivering Treasure Life-Preserving Talisman
+
+The above Supreme Jade Heavenly talisman, through the great hundred and sixty disasters, vermilion on white silk, worn on the head, flowing disasters and fierce calamities cannot injure, preserves body and lifespan, lives with the three lights, wearing nine years, ascends in broad daylight.
+
+The Lesser Hundred and Sixty Disaster-Delivering Treasure Life-Preserving Talisman
+
+The above High Supreme Purple Void Jade talisman, through the lesser hundred and sixty disasters, yellow on white silk, worn on the left elbow, left side, a thousand demons and myriad spirits, epidemics and plagues flowing, disasters cannot injure, preserves body and lifespan, lives with Heaven and Earth, wearing nine years, ascends in broad daylight.
+
+The Yin Yang Disaster-Delivering Treasure Life-Preserving Talisman
+
+The above Three Heaven Youth Jade talisman, through heaven and earth’s changing cycle, myriad plagues cross and flow, water fire soldiers and disease, thousands of disasters concurrently, black script on white silk, worn, living with Heaven’s years, with sun and moon’s light, nine years flying, ascending Supreme Clarity.
+
+The above Disaster-Delivering Life-Preserving Talisman was transmitted by the Primordial Heavenly King to the Nine Completion Duke. The Nine Completion Duke is the Elder of the Nine Heavens, body nine chi tall, round eyes square mouth, voice like thunder, head emitting purple light, illuminating ten heavens, penetrating the great void, attended by twenty-four maidens, dressed in nine-colour patterned robes, wearing purple dawn crown, seated upon the purple void, in the mysterious emptiness, riding flying phoenix and mysterious dragon, roaming above the white water sand islet and empty mountains. Since the Duke received the talisman, more than seven thousand kalpas have passed, repeatedly treading yang activation and yin decline, the hundred and sixty cycle, soaring above vast waves without worry of calamity. He summons water mother to fill the source, commands nine rivers to stop flowing, orders yin officials to receive him, employs six dings to support him, controls five peaks as mysterious beams, guides feathered riders to sail boats, carefree and pure, reaching the utmost pleasure of roaming, abiding by heavenly reckoning, the law transmitted to later sages. If there is a mysterious chart in the imperial records, and green script Supreme Clarity, one shall obtain this text. Those who obtain it take the station of spirit immortals, transcend the hundred and sixty, ascend in broad daylight, the Emperor bestowing twelve golden youths and twelve jade maidens to attend and guard the person. One must treasure this secret and not lightly transmit.
+
+Receiving the talisman, master and disciple meditate together nine days or three days, carrying white silk one chi long, purple weave thirty-two chi, swearing by the trust of the Nine Heavens. On the day of construction at midnight, expose it in the central courtyard, facing north, one sheng of clear wine, one measure of dried meat, fifty dates, nine cups of cloth, request talisman on the altar. The master knocks teeth twenty-four times, respectfully summons the Nine Heavens messengers, the true examiners: “Now there is a certain true man or woman Jia, fond of the immortals, living in the latter world, amid ten thousand disasters flowing, carefully receiving the supreme talisman, crossing life and long preservation, wearing it on the body, communicating with the true spirits, avoiding calamities, becoming a true perfected immortal, riding the void and driving the empty, flying in Supreme Clarity.” Present the talisman to the disciple, finished. The remaining offerings are scattered at will.
+
+The Purple Scripture Formula says: All who cultivate the Way of Supreme Truth, the body’s parents, uncles, brothers, who have died in the world, the body has not yet utterly disappeared, so among men the body treads death and filth; on the third day one must take a jar of clear water, one liang of true vermilion, throw into the water, facing south in the courtyard, beside water knock teeth nine times, recite:
+
+Qi transforms into spirit, corpse changes entering mystery, three transformations five refinements, ascending to the nine heavens’ kalpa, changing the Jia body, the Jia body transforms again, attaining to become a true man.
+
+Finished. For male death think of three jade youths; for female death think of seven jade maidens; request porcelain water to irrigate the corpse. Finished. Take water to wash hands and face, look up to heaven and command to vomit, finished; then recite shadow spell:
+
+Heavenly qi is already pure, human transformation already born, obtaining birth to upper Heaven, nine changes receiving form, five sufferings three hells, cutting off death’s name, transcend the poor soul, return to the southern court.
+
+Stop. Thus the departed receives new transformation and birth above the nine heavens, within nine years ascending jade clarity’s palace. This method is more wondrous than the great cavern’s seven ancestors’ method. The Jade Sovereign’s secret, not transmitted to unworthy persons; all without golden name Emperor charts, green script and purple text, may not see this text. Without practice, lightly informing others, seven ancestors and forefathers long confined in ghost officials, three hells five sufferings, no restoration for ten thousand kalpas. The Four Poles Bright Formula, once every seven hundred years a true man hears the transmission.
+
+The Purple Scripture Formula says: All who are scholars on the Way, roaming the world road, suddenly encountering a dead corpse on the Way, filthy qi clinging to the body, the person must walk twenty-four paces, face true north, knock teeth nine times. For male corpse think of three jade youths, for female corpse think of seven jade maidens, come to summon the jade valley’s midst, imperial Ganoderma pure water to irrigate the dead corpse upon. After a short while, the dead corpse revives into a man, then recite shadow spell:
+
+Withered returns to flourishing, extinguished returns to life, obtains birth in upper Heaven, again receives supreme spirit, nine heavens’ kalpa, revolving and repeating embryo and infant, accumulation and destruction, white corpse returns to life.
+
+Finished. Wipe hands and eyes twenty-seven times and stop. Thus the filthy qi is dissolved, the dead receives transformation anew, afterwards becoming a spirit person. The person encountering twenty-four passes recites this refining spell, merit perfected, virtue increased, name recorded in Supreme Clarity, after twenty-four years can ride cloud wheels, flying in nine mysteries.
+
+The Purple Scripture True Formula, arising from the Supreme Emperor, Ancient Mystery Way, composed by the High Sage, transmitted by the Primordial Emperor Jade Sovereign to the Azure Essential Emperor Lord, marked for miraculous use, collected as the Golden Roots Collection of Scriptures. The Supreme Emperor with golden dawn jade youths and Western Blossom jade maidens, each twenty-four, attend the spiritual texts, recording merits and virtues. Those who violate the formula are reported to the Jade Sovereign, informing the five Emperor divine soldiers, punishing the body, seven ancestors suffering torment, long closure of the rivers and sources; those who cultivate must be cautious.
+
+End of Volume One of the Collection of Scriptures of the Golden Roots in the Purple Scripture of the Essential Azure of the Supreme Clarity of the Perfected Cavern.
+
+#1 The characters ‘Neng Shu’ were originally missing, supplied from context.
+
+#2 The character ‘li’ was mistakenly written as ‘luo’ in the original.
+
+#3 The character ‘fu’ was mistakenly written as ‘jing’ originally.
+
+#4 The character ‘ji’ was originally written as ‘zi’, corrected from context.
+
+#5 The character ‘fei’ was missing originally, supplied from context.
+
+### Volume Two of the Collection of Scriptures of the Golden Roots in the Purple Scripture of the Essential Azure of the Supreme Clarity of the Perfected Cavern
+
+Compiled by the Prime Minister Azure Youth Lord
+
+Scripture of the Primordial Heavenly King
+
+The Primordial Heavenly King receives the heavenly natural lineage, forms his shape in the undifferentiated mist, entrusts his body to the void born fetus, is born at the interval of emptiness and cavern. At the time when the mysterious brightness was not yet divided, heaven’s light was obscure and vast, immense and boundless great void. Accumulating more than seven thousand kalpas, heaven was bright and qi clear, two rays intertwined, a mysterious purple canopy reflected upon his head, the six qi’s lightning wings his spirit, born by night self-illuminated, divine light illuminating the chamber, dispersing fragrant smoke of void, dwelling the heart in sky mist realm, refining countenance at the border of the cavern, riding alone on the spirit talisman’s rhythm, resisting mysterious descending edicts, internal qi at the mysterious cliff, extravagant imaginations in the hidden depths, suddenly carefree, flowing and wandering forgetting revolutions, jade wheels and jade carriage, blue chariot and mysterious dragon, flying essence streaming mist, shining lightning in the void palace, eastward roaming the blue water luxuriant forest realm, resting above the blue mist nine twisting chamber, advancing to the golden gate, receiving the title of Jade Clarity Purple Void High Supreme Primordial. The Supreme Great Dao Lord’s golden slips and jade tags make records of the Eastern Splendour various azure palaces, commanding the governance of myriad crossings, mysterious descending jade blossom maidens and golden dawn youths, each three thousand, flying dragons and poisonous beasts, giant qilin ten thousand feet tall, fierce heavenly beasts clawing, all guarding the jade gates, heavenly might resplendent, arrayed in the great court, flying azure feathered canopies, flowing purple phoenix edicts, golden true jade light, revealing the seven origins, divine tiger upper talisman, flowing golden fire bells, compiling the primordial emperor, position ascending jade clarity, holding the Supreme Emperor High Sovereign’s truth, Dao complete and qi clear, also praising the spiritual chapters thirty-nine, jade wisdom stirring phrases, unfolding endlessly, wondrous sounds issuing from primordial heaven, jade echoes opening the cavern gate. Hence it is titled The Great Cavern True Scripture of Ability to Write. Its Way is supremely honored, born together with the Primordial Beginning, the High Supreme wondrous transformation, measure difficult to surpass, flowing sound countless myriads without ceasing, scripture renewed after ten thousand kalpas, without golden slips and jade names, not to be studied or heard. Later disciples with diligent aspiration, abandon burdens and forget dust, silent heart in long hills, facing bright sky morning, pure fasting and bitter recitations, weary but daring not to sleep, petitioning golden slips and jade tags, recording names in Jade Clarity, then receiving The Great Cavern Scripture Formula, standing at the three origins, voice startling the nine heavens. Those who obtain this chapter, roots of Supreme Truth, have golden slips and petition tags, jade officials named Eastern Splendour, become true persons, chambers summon void-born brightness, halls descend hundred harmonies of smoke, jade blossoms attending, golden dawn guarding form, penetrating the utmost cliff of heaven, cooperating the three lights to pass truth, directing the five dawns to drive the chariot, commanding flying dragons to ride wheels, ascending the Three Essentials’ palace, paying homage before the Great Emperor. The High Supreme Primordial bestowed, the Supreme Great Dao’s utmost truth, subtle is the Primordial Beginning spiritual transformation secret text, entrusted to the Prime Minister Azure Youth Lord, who holds the registry of Eastern Splendour, to pass to later sages those to become true persons. Its Way is a treasured secret, not transmitted to later ages, lightly revealing the divine text, body serves dark sources, calamity affects seven mysteries, long serving low ghosts, no immortality granted.
+
+The Prime Minister Azure Youth Lord says: The golden slips and jade tags arise from the palace of the Supreme Spiritual Capital, carved in jade as tags, bound in gold as slips, written in vermilion characters, tied with purple cords, always shaded by mysterious clouds and purple canopy in his chamber, hundred harmonies incense scattering the courtyard, commanding Western Blossom jade maidens and Golden Dawn youths each three hundred to guard the spiritual texts. The Primordial Heavenly King received from the Supreme Great Dao Lord, its truth and formulas transmitted once every seven hundred years for three transmissions. All disciples, even if not yet attaining this text, have names reversed registered in Azure Palace, but lack golden slips and jade characters only. Leading immortals, attendants and recorders constantly examine subtle and gross; those diligent and aspirant are all allowed to be mysteriously instructed this text, petitioning names to Jade Emperor and Eastern Splendour Azure Palace; the Supreme Great one will send perfected persons to bestow their true scriptures. Later sages and all true persons all first petition slips in Eastern Splendour, cast jade tags in Supreme Clarity, then receive The Great Cavern Scripture, pure fasting and bitter practice, then become true persons. Novice disciples having no golden slips recorded in Azure Palace, jade registers have no mysterious binding names, divine scriptures cannot be obtained nor bestowed, those heavenly demons also cannot be subdued, true spirits never descend, jade maidens do not guard the person. Now therefore order the Supreme Emperor’s formula, copy and collect by ranks, to open the way for later learners. Those with heart should increase fasting, supervise diligent aspiration, focus on the profound true, deeply move the Jade Emperor, petition slips in Azure Palace, then may recite divine scriptures, understand mysteries, the Supreme Great one will dispatch cinnabar carriages and flying canopies to come to receive the person ascending jade clarity. Yet this scripture’s prohibitions are especially strict, not to lightly transmit, those not true receiving it, calamity hits seven mysteries, body suffers wind blade punishment.
+
+Sealing the Golden Slips and Jade Tags Five Mountain Supreme Methods
+
+The Supreme Great one always on the first day of the first month, the seventh day of the seventh month, and the ninth day of the ninth month, thrice annually sends jade dawn primordial emperor, Supreme Ultimate True Man, leader of immortals and jade officials, to Eastern Splendour Azure Palace, to inspect and verify true immortal registers and records. Those with golden slips and jade names, these petition the three origins, according to depth of learning, jade youths and maidens guard their persons. If there is leakage or neglect of the true law, it is reported by golden youths, even with golden slips one is removed and renamed ghost official, body suffering wind blade punishment, seven mysteries’ ancestors rolled in the mountain stones, filling the accumulation of night river.
+
+All accumulated learners daily on their appointed days, should calm the mind in a quiet chamber, fast purely and meditate silently, incense scattered about, golden slips with vermilion writing eight times, purple cords binding the chapters, to petition the High Supreme Jade Emperor and Eastern Splendour Azure Palace; jade tags eight pieces, to petition the three origins. First inside the chamber facing east knock teeth nine times, read the slips and tags once, finished, orally invoke and open:
+
+High Supreme Jade Emperor, thirty-nine Emperors, twenty-four True Ones, I, Jia, born in the latter world, long dyed in noisy dust, grateful for prior blessings, have received true writings, now petition golden slips, record name in Jade Clarity, seal and entrust to the Spiritual Mountain, long to serve as imperial minister, beg High Supreme to record name in the three origins, grant jade youths and maidens to guard the body, to ride flying mist, ascend to imperial palace.
+
+Finished, rise and bow twice again. Petition to High Supreme Jade Emperor golden slip upper chapter: certain mountain gentleman Wang Jia, styled Jia, born in the certain month on the first day of the lunar month, in the certain year and month, petition golden slip purple recording jade register precious writings, ascending to High Supreme Jade Emperor, thirty-nine Emperors, twenty-four High Trues, golden slip purple brilliance jade splendour jade palace.
+
+Written in purple characters on one chi of paper with golden slip head.
+
+He is a High Supreme Virtual Emperor of Jade Clarity Eastern Splendour Azure Palace true person, Wang Jia respectfully bows twice.
+
+Written on one slip.
+
+Petition says:
+
+Written on one slip.
+
+High Supreme Virtual Emperor, Jade Dawn Supreme Great Dao Lord, twenty-four Jade Emperors, thirty-nine Emperor Revered Ones, I, Jia, a humble servant in the latter world, having received remaining blessings and fortune, have obtained to enter the Supreme Truth, carefully following the profound pattern, on the first day of the first month petition golden slip, record name in Eastern Splendour, beg to be compiled and recorded, descend true spirit, obtain ascent to imperial dawn, attend imperial jade truth. Respectfully petition.
+
+Written on three slips.
+
+Certain county township mountain beginning learner true person Wang Jia, age as many years, styled Jia,
+
+Written on one slip.
+
+Born on the certain day of the certain month, fate belonging to certain mountain, certain emperor, certain place.
+
+Written on one slip.
+
+Year of Tai Sui certain day first month first day certain day, in certain county township, sealed certain mountain petition.
+
+Written on one slip.
+
+Using eight golden slips, bound with purple cord, facing north read slips once, finished, rise holding slips bow twice again. Petition to Three Origins Lord jade tags upper chapter:
+
+Certain Jia gentleman Wang Jia, styled Jia, born in the certain month certain day, certain year first month first day certain day, petition golden slip jade tag immortal register talisman, ascending to White Pure Lord, Yellow Pure Lord, Purple Pure Lord, Three Origins Purple Canopy Golden Radiance Cavern Chamber Palace.
+
+Written in white characters on one chi with jade slip head.
+
+He is Three Origins Lord of Jade Clarity, beginning learner true person Wang Jia respectfully bows twice.
+
+Written on one tag.
+
+Petition upper:
+
+Written on one tag.
+
+Supreme Great Three Origins Lord, I Jia formerly had cause and fate, fortune and blessing, received divine scripture, not daring to open and read. Carefully following Eastern Splendour profound pattern, respectfully petition jade tag, record name in Azure Palace, above say Three Origins, beg to grant compilation and recording, descend true spirits, obtain ascent to imperial dawn, attend imperial jade truth. Respectfully petition.
+
+Written on three tags.
+
+Certain county township mountain beginning learner true person Wang Jia, age as many years, styled Jia,
+
+Written on one tag.
+
+Born on the certain day of the certain month, fate belonging to certain mountain, certain emperor, Jia.
+
+Written on one tag.
+
+Year of Tai Sui certain day first month certain first day certain day, in certain county township, sealed certain mountain petition.
+
+Written on one tag.
+
+Using eight jade tags, bound with purple cords, facing west read jade tags once, finished, orally invoke and open:
+
+Supreme Great Pure Lord, Yellow Pure Lord, Purple Pure Lord, I Jia formerly received true teacher, pledged to bestow true scripture, now petition jade tag, record name in Three Purities, beg to grant jade maidens, true spirits descend on body, obtain to ride purple mist, ascend imperial palace.
+
+Finished, rise and bow twice again. Petition to Eastern Splendour Azure Palace Prime Minister golden slip one chapter:
+
+Certain mountain gentleman Wang Jia, styled Jia, born in the certain month certain day, certain year first month certain first day certain day, petition golden slip Azure register immortal register writings, ascending to Jade Treasure King Golden Gate Prime Minister High Dawn Master of Eastern Sea Azure Youth Lord, Eastern Splendour various azure palaces.
+
+Written in azure characters on one chi with slip head.
+
+He is High Supreme Jade Clarity Azure Youth Prime Minister, beginning learner true person Wang Jia respectfully bows twice.
+
+Written on one slip.
+
+Petition says:
+
+Written on one slip.
+
+Supreme Clarity Jade Treasure Golden Gate Prime Minister High Dawn Master of Eastern Sea Azure Youth Lord, I Jia polluted by lower world, fortune flowing, blessing descending, born human way, enter true lineage qi, intention to sever trace, dwell long hills, entrust shadow spiritual mountain, carefully following profound formulas, respectfully petition golden slip, record name in upper palace, beg to grant upper compilation jade clarity, descend true spirits, obtain to leave lower world, ascend golden gate, advance before Jade Emperor. Respectfully petition.
+
+Written on three slips.
+
+Certain county township mountain beginning learner true person Wang Jia, age as many years, styled Jia,
+
+Written on one slip.
+
+Born on the certain day of the certain month, fate belonging to certain mountain, certain emperor, certain star.
+
+Written on one slip.
+
+Year of Tai Sui certain day first month certain first day certain day, in certain county township, sealed certain mountain petition.
+
+Written on one slip.
+
+Using eight golden slips, bound with purple cords, facing east read slips once, finished, orally invoke and open:
+
+Supreme Clarity Jade Treasure Golden Gate Prime Minister High Dawn Master of Eastern Sea Azure Youth Lord, I Jia fated by prior blessings, flowing to later generations, granted true teacher’s accomplishment, obtained to receive upper scripture, respectfully petition golden slip, record name in Azure Palace, beg to grant compilation and recording, entrust to jade officials, universally announce to all heavens and all lands, all caverns and clear sources and spiritual mountains, all immortals see this special text, descend with true spirits, obtain to ride flying mist, ascend Three Purities.
+
+Finished, rise and bow twice again.
+
+All three petitions finished, turn east, knock teeth nine times, recite:
+
+Primordial framework profound and remote, heavenly truth hidden and obscure, having received prior blessings, fortune added to future birth, formerly connected to true teacher, sincerely bestowed precious scripture, dare to report to Three Origins, ascend petition to Jade Clarity, golden writing Eastern Splendour, record register and name, long to be imperial ministers, hope for true spirit’s descent, grant jade youths and maidens to guard form, obtain to ride flying sky, ascend Golden Gate, pay homage in jade court.
+
+Finished, swallow qi nine

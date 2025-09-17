@@ -1,0 +1,9 @@
+# Master Zhang Gaofu of Chisong Seeking Transcendence
+
+Zhang Gaofu was a man of Henan, who took vows in a San Guan temple in his native place. Afterwards he wandered through Jiangsu and Zhejiang, taking up residence at the Chisong Palace in Jinhua, where he sojourned for several years. In time he fell grievously ill, and his family came to Chisong to bring him back to Henan. It is said that not long after returning home he underwent transformation as an immortal.
+
+In a certain year, in the seventh month of the lunar calendar, the steward of Chisong Palace was reading in his own alchemical chamber. At that moment there was a knock at the door, and in came the Daoist Zhang Gaofu. The Master said to the steward, “Honoured steward, be compassionate: I come to inform you that I must take leave, I am going back.” The steward replied, “Oh, very well. Go then, but remember to settle your account at the office. You are welcome to return again.” Zhang Gaofu added, “The Zhongyuan festival is near at hand, and the temple will hold a ritual then; remember to write down my name.” Having said this, he took his leave and went out.
+
+The steward remained for some time before recovering his thoughts. Did Zhang Gaofu not depart Chisong many years ago? How was it that he now came to bid farewell and ask leave? Could it be that he came to request of me to write a name for his transcendence? Accordingly, at the Zhongyuan festival, when the temple was observing the Huanglu fast, the steward himself paid out of his own purse to write a memorial tablet for Zhang Gaofu’s passage to the hereafter.
+
+This story was told me by a senior brother some years ago in Jinhua. Hence in many temples there are ancestral halls, where the successive masters of the mountain are venerated and enshrined. And lay Daoists also commonly enshrine the masters of their own sect, receiving their incense offerings. This is not without reason.

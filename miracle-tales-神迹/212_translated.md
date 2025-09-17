@@ -1,0 +1,15 @@
+# The Spiritually Efficacious Repayment of Debts by Chen Maogong of Hangzhou
+
+Chen Maogong was a man of Lin’an Prefecture in Hangzhou. Having taken a wife for many years, he had begotten five daughters in succession, but no son. Chen Maogong’s father, the venerable Chen, was exceedingly distressed. Even until the thirteenth year of the Republic, when the venerable Chen passed away, Chen Maogong had yet no male offspring. Two years later, that is, in the fifteenth year of the Republic, Chen Maogong’s wife, Madam Liu, bore a son, and the whole family was greatly joyous, entertaining relatives and friends.
+
+Yet the happy days did not long endure. This child of the Chen family was often ill, and on several occasions was near death. The Chens sought many physicians, even summoning doctors from the provincial city, but all could only effect a temporary cure, after which the illness returned. The family was in utter distress. One day, Madam Liu, having tended the child without rest for a long time, was in a daze when she heard voices outside the door. The sound resembled that of her deceased father-in-law. One voice said, “When, then, will you repay the money owed to me? If there be no money, I shall take this child back with me.” The venerable Chen pleaded, “Grant me a few more days; I will first pay the interest, and in a few days will pay the rest.” They debated thus for a long while outside. Madam Liu, troubled in heart, could not help but utter a sound. Then the voices ceased.
+
+The next day Madam Liu related this matter to Chen Maogong, who was not much inclined to believe it. So he went to the town to consult a spirit medium. The medium crooned and chanted for a while, then said, “In your destiny there is no male offspring. This son of yours was bought by your father at the price of three thousand six hundred strings of cash. Because the money remains unpaid, another will come to take him back.” Chen Maogong asked, “What then shall be done?” The medium replied, “In three days prepare twelve catties of spirit money, and burn it on your father’s grave, so that he may have the means to repay this debt. Once the debt is fully discharged, no one will come to claim your child.” What the medium said accorded exactly with what Madam Liu had heard; Chen Maogong was compelled to believe. He therefore prepared offerings and worshipped his late father with reverence, and at the same time burned the spirit money upon the venerable Chen’s grave. From that time onwards, the child was seldom ill.
+
+The Iron-capped Daoist said: After a man dies, he transforms into a ghost and in the nether world aids those still in the living world. Yet even the ghosts of the nether world require money that affairs may be properly managed. Therefore descendants ought to burn more spirit money for their deceased kin, so that they may live well on that side, and in turn have the power to assist men here.
+
+In praise it is said:  
+With one heart I pray my offspring may flourish,  
+Ancestors in the nether court silently aid.  
+Were it not for the truth spoken by the spirit medium,  
+How could one know of the offerings after death?

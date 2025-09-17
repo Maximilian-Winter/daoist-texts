@@ -1,0 +1,3 @@
+# The Honoured Star Lord Zuo Fu
+
+With devoted heart I bow and surrender myself in reverent ceremony. Within the Purple Tenuity Enclosure, in the Imperial Throne Palace, the Dipper’s handle revolves and turns, governing the misfortunes of conflict, punishment, and clash. The starry light blends and shines forth, revealing the tokens of health, peace, happiness, and longevity. The hanging images bear faithfulness, the flowing radiance without interval. Great is the compassion and great the vow; great is the sage and great the mercy. The Great Sage of the Central Heaven, the eighth cave of the Northern Dipper, the luminous Honoured Star Lord Zuo Fu of the Great Way.

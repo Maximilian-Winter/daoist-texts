@@ -1,0 +1,9 @@
+# Yuan Guizhen's Offering and Refinement of the Yellow Spirit Yue Seal: Its Efficacy Proved
+
+There was a man named Zhang Rang, a native of Gui Prefecture, who wandered about Hunan and Hubei, and was seized with a malady of the mind. At first, he only suffered from forgetfulness; on the journey he forgot how to walk, and at home he forgot how to sit down; sometimes he could not distinguish between dawn and dusk, and lost his way. After more than a month, his sickness became severe; his temper grew fierce and violent, and at the slightest provocation he was enraged, uttering loud curses against ghosts and spirits, so as to alarm those about him. Often he ran naked, without the slightest sense of shame or avoidance. His mind was already confused: though frequently burned and cut, he feared not to touch fierce flames and sharp knives.
+
+The Daoist Yuan Guizhen engraved a seal of the Yellow Spirit Yue. Having performed the consecrating rites of fasting and offering for the seal, he burned incense and prayed to the spirits, desiring to test the efficacy of the magical seal. Zhang Rang was then running wildly in frenzy; he was seized, and the seal was impressed upon his breast and back. The man, who was before violent and restless, immediately fell into a deep sleep.
+
+Yuan Guizhen knew that the power of the magical seal had taken effect. Lighting a pillar of cinnabar incense, he again impressed the seal upon Zhang Rang’s breast; suddenly the disease was cured. A black bird flew forth from Zhang Rang’s mouth, and after flying several zhangs it fell dead to the ground. People gathered to look, and found it to be a great bat. On the bat’s back were characters of the Yellow Spirit Seal, most clearly defined.
+
+Thereupon Zhang Rang returned to normal. Yuan Guizhen used this magical seal to aid others who had been harmed by evil beings, and achieved great efficacy.

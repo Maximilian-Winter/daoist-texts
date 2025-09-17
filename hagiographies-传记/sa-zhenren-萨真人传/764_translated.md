@@ -1,0 +1,67 @@
+# Chapter One: General Account of Men in the World, and the Former Lives and Cultivation of Master Sa the Perfected
+
+The Poem says:
+
+The light of autumn fades and meets spring again;  
+The busy black rabbit seems like a revolving wheel.  
+At length I believe that merit and fame are but externals;  
+Behold, wealth and rank are like fleeting clouds.  
+When joy is met, do not grieve the spirit;  
+Life is easy to lose, like silver at the edge.  
+At leisure I try to recount the affairs of old;  
+Now let us look upon the Immortal Master Sa.
+
+Since the primal chaos was first divided, above there is Heaven, below there is Earth; Heaven is worn upon the head, Earth is trodden underfoot, and there are men between. Heaven, Earth, and Man—these are known as the Three Powers. Yet of men’s births there are numerous ranks and grades. Among them are kings and nobles, high ministers and great officers; not to mention those called scholars, merchants, travellers, physicians, masters of the Yin and Yang and of the earth’s geomantic energies, physiognomists, diviners, craftsmen, fishermen, woodcutters, tillers, herdsmen, as well as players of lute and painters. These various ranks of men, how can one reckon them all? In a single day there are countless deaths and births; but there is one class who hold to pure precepts, have never sullied themselves with turbid waves of desire, nor drifted upon the sea of passion; they cultivate the mind, nurture the nature, perfect the essence, and consolidate the spirit. Those who attain long life and unaging existence—these are called the spirits and immortals. Where do these spirits and immortals dwell? After they have ascended on high, they dwell above the thirty-three heavens. A poem attests this, saying:
+
+Beyond the first heaven is another heaven;  
+Above each heaven dwell the spirits and immortals.  
+These immortals have been once mere mortals;  
+Only fearing that mortal hearts are not firm.
+
+This volume of writing speaks solely about the affairs of immortals. In the earlier Five Dynasties period there was a man surnamed Sa, called Shoujian, a native of the Western River of Shu, who attained the title of Perfected Immortal, and became an immortal. The Emperor on High appointed him to the office of Heavenly Pivot, his coming and going within the Palace of Illumination. Beneath the Jade Emperor’s throne, he was a colleague alongside Master Zhang the Celestial and Lord Xu the Perfected, belonging to the same rank as the Three Officials and Four Saints. Under Heaven there is none who does not know this Immortal. Yet how easily can one become an immortal in Heaven? It is only by cultivating one’s karma through three lifetimes that one attains such a position. What was Master Sa’s previous life before this?
+
+In former times, he was but a butcher, surnamed Wu, called Cheng. In his youth his strength was robust. See how he slaughtered oxen, butchered pigs, and flayed sheep with skilled hands, his methods dexterous as a butcher breaking down an ox, or as Zhu Ping executing the slaughter of a dragon. One day he might kill one or two oxen, or flay three or four sheep, or butcher five or six pigs. He was a swift executioner before the Lord of Hades, a relentless grim reaper among the beasts and livestock. When he reached thirty years, he had slain countless lives. One day, as he passed by the schoolhouse, he heard the clear chanting of the students reciting: “The gentleman towards birds and beasts, seeing them alive, cannot bear to see them die; hearing their voices, cannot bear to eat their flesh.” With a deep sigh he said: “I have been mistaken in this life.” Straightway he renounced his former ways; no longer did he kill oxen, no longer butcher pigs, no longer flay sheep. At dawn each day he arose early, burnt an incense stick, uttered a few Buddha’s names, and wrote some admonitions: “Good shall receive good reward; evil shall receive evil; if good and evil seem unrewarded, the day has not yet come.” Also: “The house that accumulates good fortune shall have surplus blessing; the house that accumulates evil shall have surplus calamity.” When he reached the age of sixty, he died of illness.
+
+Upon the day of his death, the impermanences first took him to the Court of the Eastern Mountain. There he met the Benevolent and Sacred Great Emperor of the Eastern Mountain. The Benevolent and Sacred Great Emperor, seeing that this Wu Cheng had been a butcher in the first half of his life, but devoted himself to Buddha recitation and cultivation in the latter half, judged that he ought not to pass through the netherworld, and wrote an official document straight to the King Yan of the Underworld, saying: “Wu Cheng slaughtered and killed living beings thirty years ago, but thirty years hence he recited Buddha and cultivated, turning from evil to good. Must he still pass through the wheel of rebirth?” King Yan replied: “This man has turned from evil to good and is a good man; let him not come to the nether realm.” So he ordered two soul-guiding boys to conduct him to a good place for rebirth, into a wealthy family. He was born with ample clothing and food, three hundred fields of grain and a hundred measures of grain, clear water fish ponds, and a fine mansion. The soul-guiding boys conducted this Wu Cheng to be born in Liang Prefecture into a family surnamed Chen. This was Master Sa’s first lifetime of cultivation.
+
+As for Master Sa’s second lifetime of cultivation, his former life was surnamed Lu, called You. He had no elder brothers nor younger brothers. Solely enjoying the division of his grandfather’s estate, he lived well. Though his fields were not contiguous, they numbered several hundred acres. The rich lands around the city walls were not worth a hundred thousand strings of cash, yet he could boast a girdle of ten thousand strings. Before his embroidered screen he had no twelve beauties, yet he had one wife and one concubine. He came and went with servants, his meals never wanting fish nor his carriage lacking horses. In summer he wore fine linen; in winter he wore light furs. Not a great man of wealth, yet able to live without asking help from others. If others reached this station, who would not harbour desires? Some might steal the incense of Han Shou; some might pilfer the jade of Xiao Lang; some might leap the powder walls of Zhang Sheng. But this Lu You was honest and straightforward.
+
+One day, while living upon his estate, there came a young maiden, about seventeen or eighteen years old. She was seen as:
+
+Eyebrows like parted willows in eight strokes,  
+Lips like cherries with a single dot.  
+Delicately fair as Wen Jun’s face,  
+A slender waist, slight and small.  
+From her sleeves peeped jade-like bamboo shoots, her fingers slender and tender;  
+Beneath her skirt glimmered golden lotuses, her footsteps soft and coy.  
+Truly she surpassed Wang Zhaojun’s plucking of the lute on horseback,  
+And the Qin lady’s playing of the phoenix flute from the tower.
+
+This young maiden was returning to her mother’s home for a visit, when suddenly a fierce storm arose. The clouds were as black as ink thrown, the rain poured like a basin overturned, thunder roared as if striking the monument of Ji Jianfu, lightning flashed like heaven and earth were split, wind shattered bamboo and broke trees as if overturning boats on the Wu River. The maiden had no choice but to take refuge upon Lu You’s estate. She intended to wait until the rain passed, but the storm began at midday and did not cease until dusk. When she wished to depart, the road was dark and obscure, so she was compelled to lodge at Lu You’s estate. Seeing that the maiden had not eaten, Lu You ordered the household to kill a chicken, cook a bowl of rice, and prepare some dishes. The maiden ate while her heart pondered, thinking: “This gentleman is so courteous; tonight he surely must be considering me—I had better first make known my feelings to him.”
+
+In their conversation she became close with Lu You. After the meal, Lu You said: “Young lady, this estate has but one household; the family’s wife is at her mother’s home; otherwise, I would arrange a room for you to rest. Today, men and women lodging together is very inconvenient.” The maiden replied: “That matters not.” Lu You said: “There are only two proper rooms here; the other bedding is disorderly; it would be difficult to find another chamber for you. You must sleep on my bed; I will sleep elsewhere.”
+
+The maiden saw that Lu You was a young and comely man, and her spring heart was already moved. Awaiting to share the bed, she thought to make a post station of it for one night’s rest. But Lu You was a man of upright mind, imitating Guan Yu who held the candle until dawn in grand virtue, and lit the lamp, reciting a poem:
+
+Ritual and law shine as the sun,  
+Moral principles are weighty as mountains.  
+Be wary of lust between man and woman,  
+Lest the sages and saints be disturbed.  
+Though the Lady Zhu is called fair,  
+Xiangru cannot be spoken of thus.  
+One must diligently examine one’s heart,  
+And break through the barriers of desire.
+
+The maiden ascended the bed, loosened her fragrant silk sash, took off her red sleeved jacket, and lay in the red gauze canopy. Unconsciously, her heart was moved. At the second watch, unable to restrain her desire, tossing and turning, she said: “Gentleman, you come here and sleep with me.” Lu You said: “Men and women should not touch or come close; how much less sleep together?”
+
+The maiden saw that this gentleman sat quietly by the lamp, seemingly without passion, and so she put on her clothes and rose, saying: “Gentleman, my coming today is not as a wanton, but as a gift of Heaven. Staying at your noble estate, seeing your gentle and jade-like temperament, I have truly fallen in love. Why do you not lie close to me, embrace me, lie side by side in mutual delight, like fishes swimming in spring waters?” Lu You said: “This cannot be. Young lady, you are a woman of good family, with a husband of your own; I am a son of an old family, with wife and household. If you would befriend me, how can you forget your husband? If I would befriend you, how can I forget my wife? This matter is utterly impossible.” The maiden said: “My coming today is unfortunate. To befriend the gentleman, people will talk; not to befriend the gentleman, people will talk also; is it not like carp and crucian swimming confused together?” Lu You replied: “True is true, false is false; have you not heard: ‘Only in clear water are the two kinds of fish seen clearly’?”
+
+The maiden saw Lu You’s firm and righteous words, and had no remedy but to take leave at dawn. This is not our subject. Who would have thought that Lu You’s little good heart was reported by the local earth god to the heavenly bureau above and the underworld below.
+
+But that matters not. Another day, Lu You was hoeing in the back garden, planting flowers. As he dug, he uncovered a cache of gold, about five hundred taels. Lu You said: “My family is already rich; why seek more? This must be used to aid the poor and needy.” So he dug up the gold and the next day went to the crossroads to distribute it. The widowed, the orphans, and the solitary came crowding, filling the market. Lu You gave one or two taels where one was due, five qian where five qian was due, and so forth, distributing all five hundred taels in an instant.
+
+Yet there were some crippled, some blind, some hunchbacked; the lame could not walk well, the blind could not see, the hunchbacked struggled with his back; their steps were slow, a mile took twice the time; when they reached the crossroads, the gold was already gone. Lu You then ordered his servants to bring another fifty taels from the house to add to the distribution, thus completing it. Those who received his bounty, many in number and voice, all praised “Lu You the official is kind-hearted,” all said “Lu You the official has a good heart.” These voices reached high to the mysterious firmament and low to the nether darkness. The underworld also recorded this good deed in its registers.
+
+Lu You lived to the age of sixty-five and then passed away peacefully. On the day of his death, the impermanences first brought him to the Court of the Benevolent and Sacred Great Emperor of the Eastern Mountain. The Emperor, seeing that Lu You had been chaste in the presence of the maiden, and had found the gold and distributed it to the poor, judged that he should not pass through the wheel of rebirth. He therefore wrote an official document and delivered it to the netherworld, saying: “Thus and thus.” The King Yan ordered the offices of reward and punishment to check the records, and seeing these two deeds, he said: “This man was not led astray by beauty, nor covetous of gold. He has passed the great barrier of sin. In the next life he must become an immortal, but he must undergo many trials. Let us see how his precepts are kept. If his precepts are strict, then let him attain the true fruit.” Thus a document was returned to the Eastern Mountain Court, ordering that Lu You need not be sent to the netherworld, but that two soul-guiding boys should guide him to be born again in the world, to experience human affairs fully, and then become an immortal. This was Master Sa’s second lifetime of cultivation.
+
+But as to how this first life of immortality will be, it shall be unfolded hereafter.

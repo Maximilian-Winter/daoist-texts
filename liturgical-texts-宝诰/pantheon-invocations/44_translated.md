@@ -1,0 +1,3 @@
+# Precious Edict of the Lord of the Breaking Army Star
+
+With devoted heart I submit myself in reverence and obedience. Within the Purple Forbidden Enclosure, in the Hall of the Sea Origin, the jade axle turns in the void, universally sweeping away the traces of manifold shadows; golden bells are spread across the Dipper, silently dispelling the calamities of the six harms. Manifesting the grace of Heaven, silently upholding the work of creation. Great compassion and great vow; great sage and great mercy. The Great Sage of the Central Heaven, the Seventh Heavenly Gate of the Northern Dipper, the Lord of the Great Way of the Breaking Army Star.

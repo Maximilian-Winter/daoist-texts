@@ -1,0 +1,3 @@
+# The Precious Decree of the Star Lord Tan Lang
+
+With devoted heart I bow and surrender myself in reverence. Within the Purple Tenuity Enclosure, in the Palace of the Heavenly Origin; the Jade Balance and the Celestial Pivot, established to regulate the Seven Governances; the Jasper Pool and the Golden Mirror, set to guard the Myriad Directions. He governs the celestial measures upon the Terraced Enclosure, and rescues the living folk from water and fire. Great is his compassion and great his vow; great is his sanctity and great his mercy. The Great Saint of the Central Heaven, the First Yang Bright Star of the Northern Dipper, the Star Lord of the Great Way, Tan Lang.

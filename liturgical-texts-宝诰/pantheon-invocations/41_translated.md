@@ -1,0 +1,3 @@
+# Precious Declaration of the Lord Wenqu Star
+
+With devoted heart I bow and take refuge, paying reverence. Within the Purple Tenuity Enclosure, in the Moon-Origin Palace. The sage spirits of literature and martial prowess, firmly established as the foundation of the Sovereign Heaven’s realm; bright and wise, extending the pattern of Huang and Lao. He opens and expands the map, creating and bringing forth men and things. Of great compassion and great vow, supremely sage and greatly compassionate. The Great Sage of the Central Heaven, the Fourth of the Northern Dipper, the Mysterious and Dark Wenqu, the Great Way Star Lord.

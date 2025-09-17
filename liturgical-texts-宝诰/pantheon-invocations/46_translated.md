@@ -1,0 +1,3 @@
+# The Precious Edict of the Right Assistant Star Lord
+
+With devoted heart I bow and offer obeisance. Within the Purple Tenuity Enclosure, in the palace of the Highest Honour, His station corresponds to the Three Terraces, commanding the divisions of ghosts and spirits; His功 regulates the Seven Luminaries, and His權 balances the mechanism of transformation and principle. He regards all with impartiality, universally nourishing the myriad beings. Great is His compassion and great His vow; great is His holiness and great His mercy. He is the Great Sage of the Central Heaven, the Ninth Hidden Light of the Northern Dipper, the Right Assistant Great Way Star Lord.

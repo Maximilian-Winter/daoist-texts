@@ -1,0 +1,3 @@
+# The Precious Edict of the Star Lord Lu Cun
+
+With devoted heart and reverent mind I bow and submit. Within the Purple Forbidden Enclosure, in the palace of the Sun Origin, he fashions and perfects the Yin and Yang, caring for the myriad beings beneath the lower earth; revolving through day and night, his governance is arranged throughout the circumpolar heaven. No wish remains unfulfilled; when calamity arises, it is immediately dispelled. Great is his compassion and great his vow; great is his holiness and great his mercy. The Great Holy One of the Central Heaven, the Third Perfected of the Northern Dipper, the Star Lord of the Great Way Lu Cun.

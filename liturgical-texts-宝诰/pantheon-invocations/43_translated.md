@@ -1,0 +1,3 @@
+# Precious Edict of the Star Lord Wuqu
+
+With sincere heart I bow and submit my life in reverence. Within the Purple Tenuity Enclosure, in the Palace of the River Origin. Its light moves through the Three Enclosures, its manifold glories shining with the colours of scattered pearls and jade beads; its radiance embraces the Great Unity, pure and clear as the autumn of a jade mirror. It is the refuge of all living things, the sovereign lord of Yin and Yang. Great in compassion and great in vow; mighty sage and great mercy. The Great Sage of Central Heaven, the Sixth Star of the Northern Dipper, the Star Lord Wuqu of the Northern Pole Way.

@@ -1,0 +1,3 @@
+# Precious Edict of the Star Lord Lianzhen
+
+With devoted heart I bow and surrender my life in reverence. Within the Purple Tenuity Enclosure, in the Palace of Jiangyuan. On the celestial track and path, the great virtue is exalted throughout the realm; revolving among myriad transformations, its merit perfected and splendid in the circumpolar heaven. It guards against adversity and dispels calamities, bringing about auspiciousness and banishing retrogressions. Great compassion and great vow, greatly sage and greatly benevolent. The Great Sage of the Middle Heaven, the Fifth of the Northern Dipper, the Red Origin Lianzhen, Star Lord of the Great Way.

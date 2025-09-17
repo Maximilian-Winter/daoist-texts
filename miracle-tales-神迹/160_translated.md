@@ -1,0 +1,11 @@
+# The Daoist of Xiandu Mountain in Jinyun and the Ritual of the Big Dipper for Changing Fortune
+
+In the city of Lishui, Jinyun County, there is Xiandu Mountain, formerly known as the Sacred Cave of Praying to Immortals of Xiandu. Among its holy sites is Dinghu, where in former times the Yellow Emperor Xuanyuan refined the elixir. The scenery is fair and beautiful, and the spiritual power presses upon men.
+
+There was a believer named Zhao Youqing of Lishui, a man full of learning and talent, but unrecognized and unfulfilled; his years were hard and his fortune adverse, so he was often full of lament. One day, a fellow Daoist of the northwest Longmen Cave, Liu Gaoxuan, said to him, "I once heard from an old practitioner of the northwest that the ritual of the Big Dipper may change one’s fortune. In former times, the Patriarch Wang Changyue sincerely performed the ritual of the Big Dipper, and the holy truth descended in response, fulfilling all his requests. Why then, my friend, should you not perform the ritual of the Big Dipper to seek smooth fortune?"
+
+Zhao thus followed his counsel, and respectfully entreated Daoist Liu to perform the ritual of the Big Dipper to change his fortune. Liu, complying, therefore purified himself by abstinence and incense-burning, worshipping the Big Dipper morning and evening, knocking and praying to the Northern Dipper, and lighting lamps to pray for blessings.
+
+One autumn night of that year, the layman Zhao dreamed that a divine person entered his dream, wearing vermilion robes and a splendid crown, his countenance fair and bright. He said, "The Lord of the Northern Dipper perceives thy utmost sincerity, and commands the stars to search the records. In thy fate there is surely the blessing of official rank. The star officers have already commanded the evil stars to be removed from the palace of thy natal fate. Now the Purple Star shines in support, and auspicious stars illuminate thee; good fortune shall soon come to thee."
+
+In that winter, the city of Lishui held an examination for government service, and Zhao Youqing succeeded in it. He has now become a government official. Now his wealth is abundant, his household harmonious, and he often feels the illumination of the star lord. Therefore he frequently comes to the temple to burn incense.
