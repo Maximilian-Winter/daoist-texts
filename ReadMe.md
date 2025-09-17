@@ -6,11 +6,16 @@ This repository contains over 850 Daoist texts translated into English, includin
 - ~600 additional Daoist texts
 - Complete works including the Eight Immortals Attain the Dao (八仙得道傳) in 100 chapters
 
-All texts were translated in the style of James Legge's classical Chinese translations.
+## Translation Methodology
+These texts were translated using AI-assisted translation technology, carefully styled to match the classical translation approach of James Legge (1815-1897), the renowned Scottish sinologist known for his translations of Chinese classics. Legge's formal Victorian prose style, with its scholarly precision and slight archaism, was chosen to convey the dignity and philosophical depth of these religious texts while maintaining readability for modern audiences.
+
+The AI translation process aimed to preserve:
+- The formal register appropriate for religious and philosophical texts
+- Consistent terminology across related texts
+- The balance between literal accuracy and readable English prose that characterized Legge's work
 
 ## Structure
 The collection is organized into thematic categories:
-
 ```
 daoist-texts-english/
 ├── liturgical-texts-宝诰/        # Invocations and liturgies (1-99)
@@ -33,9 +38,17 @@ daoist-texts-english/
 Original texts from daomenweng.com, translated with permission of the founder.
 
 ## Usage
-These texts are provided for scholarly study and research into Daoist literature and philosophy.
+These texts are provided for scholarly study and research into Daoist literature and philosophy. Researchers using these translations should note that they are AI-generated translations and may wish to consult the original Chinese texts (included in this repository) for critical scholarly work.
+
+## Technical Notes
+- All files are encoded in UTF-8 to properly display Chinese characters
+- Markdown format chosen for readability and version control
+- File numbering preserves the original catalog system from the source
 
 ## Navigation
 - See `CATALOG.md` for detailed inventory
 - Files are numbered according to their original catalog position
-- Both English translations and original Chinese texts are provided
+- Both English translations and original Chinese texts are provided for reference and comparison
+
+## Contributing
+If you notice translation errors or have suggestions for improvement, please open an issue. When reporting issues, please reference both the document number and specific passage, and if possible, include the original Chinese text for comparison.
