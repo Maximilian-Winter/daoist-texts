@@ -52,3 +52,11 @@ These texts are provided for scholarly study and research into Daoist literature
 
 ## Contributing
 If you notice translation errors or have suggestions for improvement, please open an issue. When reporting issues, please reference both the document number and specific passage, and if possible, include the original Chinese text for comparison.
+
+## License / Usage Notes
+
+The original Chinese texts are sourced from daomenweng.com and are included here with the kind permission of the site’s founder. 
+Their copyright status is not explicitly declared; please treat them as shared for educational and research purposes only.  
+
+The English translations provided here are my own AI-assisted work (© Maximilian Winter, 2025).  
+They are shared freely for non-commercial scholarly use. 
