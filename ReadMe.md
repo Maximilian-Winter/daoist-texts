@@ -18,15 +18,49 @@ The AI translation process aimed to preserve:
 The collection is organized into thematic categories:
 ```
 daoist-texts/
-├── liturgical-texts-宝诰/        # Invocations and liturgies (1-99)
-├── canonical-scriptures-经典/     # Core scriptures (280-862)
-├── hagiographies-传记/           # Biographies of immortals
-├── cultivation-manuals-修炼/      # Practice instructions
-├── alchemical-texts-丹经/        # Internal alchemy texts
-├── miracle-tales-神迹/           # Stories of divine interventions
-├── recorded-sayings-语录/        # Direct teachings
-└── original-chinese-原文/        # Original Chinese versions
-    └── [mirrored structure]
+│
+├── 01-liturgical-texts-宝诰/        # 131 liturgical invocations
+│   ├── high-deities/                # Supreme deities (50)
+│   ├── celestial-officials/         # Heavenly bureaucrats (40)
+│   └── popular-deities/             # Folk deities (41)
+│
+├── 02-miracle-tales-神迹/           # 143 spiritual experiences
+│
+├── 03-shangqing-上清经/             # 172 Upper Clarity texts
+│   ├── core-texts/                  # Foundational scriptures (70)
+│   ├── meditation-practices/        # Practice methods (50)
+│   └── secret-transmissions/        # Esoteric teachings (52)
+│
+├── 04-lingbao-灵宝经/               # 95 Numinous Treasure texts
+│   ├── early-texts/                 # Original scriptures (10)
+│   ├── duren-jing/                  # Salvation scripture (14)
+│   ├── ritual-texts/                # Liturgical manuals (21)
+│   └── late-texts/                  # Later developments (50)
+│
+├── 05-narratives-传记/              # 172 complete narratives
+│   ├── eight-immortals-八仙得道传/   # 102 chapters
+│   ├── seven-perfected-七真传/      # 55 chapters
+│   └── sa-zhenren-萨真人传/         # 15 chapters
+│
+├── 06-cultivation-修炼/             # 78 practice manuals
+│   ├── basic-methods/               # Foundational practices (26)
+│   └── tonguan-wen-通关文/          # Obstacle-breaking text (52)
+│
+├── 07-alchemy-丹经/                 # 33 internal alchemy texts
+│   ├── cantongqi-参同契/            # Classic commentary (25)
+│   └── wuzhen-pian-悟真篇/          # Awakening to Reality (7)
+│
+├── 08-precepts-戒律/                # 4 moral regulations
+│
+├── 09-recorded-sayings-语录/        # 16 direct teachings
+│   └── leyutang-乐育堂/            # Leyutang collection (6)
+│
+├── 10-modern-近代/                  # 6 contemporary accounts
+│
+├── 11-special-特殊/                 # 2 miscellaneous texts
+│
+└── original-chinese-原文/           # Complete Chinese originals
+    └── [mirrors above structure]
 ```
 
 ## Notable Complete Works
@@ -46,7 +80,6 @@ These texts are provided for scholarly study and research into Daoist literature
 - File numbering preserves the original catalog system from the source
 
 ## Navigation
-- See `CATALOG.md` for detailed inventory
 - Files are numbered according to their original catalog position
 - Both English translations and original Chinese texts are provided for reference and comparison
 
