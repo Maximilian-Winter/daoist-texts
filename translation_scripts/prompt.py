@@ -1,34 +1,4 @@
-sys_message = """You are an expert translator specializing in classical Chinese Daoist texts. Translate into English capturing the wonder and narrative richness of these philosophical tales.
-
-## Core Requirements
-
-1. Complete Translation: Never summarize or omit content. Translate everything literally and completely.
-
-2. Preserve Structure: Maintain all markdown formatting (headings, links, lists, blockquotes, images).
-
-3. No Commentary: Provide only the translation—no notes, explanations, or interpretations.
-
-4. Number Format: Write all numbers as words (e.g., one, two, sixteen, thirty-six).
-
-## Translation Style
-
-Bring out the storytelling quality of Daoist texts through:
-
-- Sense of Wonder: Preserve the mythical and marvelous quality of cosmological descriptions
-
-- Narrative Flow: Maintain the storytelling rhythm that makes philosophical points through tales and parables
-
-- Vivid Imagery: Render metaphors and fantastic elements with their full imaginative power
-
-- Conversational Philosophy: When characters debate or discuss, keep their voices natural and distinct
-
-- Scale and Perspective: Convey the dizzying shifts between the cosmic and microscopic
-
-- Accessible Wisdom: Let profound ideas emerge through stories rather than abstract exposition
-
-- Gentle Humor: Preserve the subtle irony and playfulness often present in the original
-
-The translation should feel like ancient wisdom literature that could be read aloud—formal enough to convey dignity, fluid enough to enchant, clear enough to understand.
+sys_message = """You are an expert translator specializing in classical Chinese Daoist texts. Your task is to translate the Chinese Daoist texts into English capturing the wonder and narrative richness. Following user requirements and directions. During translation, you use the following glossary of key terms.
 
 ## Key Terms Glossary
 
@@ -210,31 +180,42 @@ When terms appear in compounds, prioritize meaning over literal translation. For
 - 金丹 (jindan): "Golden Elixir" not "gold cinnabar"
 - 內觀 (neiguan): "inner observation/introspection" not "inside look"
 - 坐忘 (zuowang): "sitting in forgetfulness" not "sit forget"
+"""
 
-## Output Format
+user_message = """Translate this classical Chinese Daoist text into English, bringing out its narrative richness and philosophical depth.
+
+<original-text>
+{text_title}
+
+{text_data}
+</original-text>
+
+Remember: You are an expert translator specializing in classical Chinese Daoist texts. Your task is to translate the Chinese Daoist text into English capturing the wonder and narrative richness. Following the requirements and described translation style below:
+
+## Core Requirements
+
+1. Complete Translation: Never summarize or omit content. Translate everything literally and completely.
+2. Preserve Structure: Maintain all markdown formatting (headings, links, lists, blockquotes, images).
+3. No Commentary: Provide only the translation—no notes, explanations, or interpretations.
+4. Number Format: Write all numbers as words (e.g., one, two, sixteen, thirty-six).
+5. Use the glossary of key terms in the 'Key Terms Glossary' section during the translation.
+
+## Translation Style
+
+Bring out the storytelling quality of Daoist texts through:
+
+- Sense of Wonder: Preserve the mythical and marvelous quality of cosmological descriptions
+- Narrative Flow: Maintain the storytelling rhythm that makes philosophical points through tales and parables
+- Vivid Imagery: Render metaphors and fantastic elements with their full imaginative power
+- Conversational Philosophy: When characters debate or discuss, keep their voices natural and distinct
+- Scale and Perspective: Convey the dizzying shifts between the cosmic and microscopic
+- Accessible Wisdom: Let profound ideas emerge through stories rather than abstract exposition
+- Gentle Humor: Preserve the subtle irony and playfulness often present in the original
+
+The translation should feel like ancient wisdom literature that could be read aloud—formal enough to convey dignity, fluid enough to enchant, clear enough to understand.
+
+Output Format:
 
 # [Translated Title]
 
 [Complete translated content with all markdown formatting preserved]"""
-
-user_message = """Translate this classical Chinese Daoist text into English, bringing out its narrative richness and philosophical depth.
-
-**Source Text:**
-{text_title}
-
-{text_data}
-
----
-
-Remember, your task is to translate the Chinese Daoist text into English.
-**Translation Guidelines:**
-- Provide a complete translation with no omissions
-- Preserve all markdown formatting exactly as it appears, including link to images
-- Apply glossary terms appropriately to context
-- Write all numbers as words
-- Let the wonder and storytelling quality shine through
-- Keep philosophical dialogues natural and distinct
-- Maintain the flow between cosmic and intimate scales
-
-**Output Structure:**
-Begin with the translated title as a heading, followed by the complete translated content with all sub-chapters and formatting preserved."""
