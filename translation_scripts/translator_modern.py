@@ -36,7 +36,7 @@ class TranslationWorker:
                     {"role": "user", "content": user_input},
                 ],
                 stream=True,
-                temperature=0.72,
+                temperature=0.35,
                 top_p=1.0
             )
 
@@ -78,7 +78,7 @@ class ContinuousTranslator:
         self.max_workers = max_workers
         self.api_key = os.getenv("OPENROUTER_API_KEY")
         self.base_url = "https://openrouter.ai/api/v1"
-        self.model = "deepseek/deepseek-chat-v3-0324"
+        self.model = "openai/gpt-4.1-mini"
         self.output_folder = "./output_new42/"
         self.docs_json = "docs.json"
         self.output_json = "output_new42.json"
