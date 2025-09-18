@@ -1,0 +1,17 @@
+# The Benevolent Healer Jia and the Secret Protection of the Divine
+
+In the decade of the nineteen sixties, upon the vast plains of northern Huai, there arose a miraculous healer surnamed Jia. Esteemed for his lofty virtue and exquisite skill, he treated the sick not merely by tending their bodies but by invoking the law of cause and effect to awaken their hearts and minds. Thus, those who sought his aid found themselves restored in both body and spirit, and the people came to call him Jia the Benevolent.
+
+When Jia encountered the poor and ailing, he took not a single coin from them; more, he would offer them money from his own purse. Once, an elderly woman of over eighty years from his village, frail with age, fell ill upon the earth’s edge. Seeing her household utterly destitute, Jia not only refused any fee but secretly slipped sixty yuan into the old woman’s shoe. After Jia departed, her son Huang Gang discovered that twenty yuan, which his sister had placed beneath their mother’s pillow, was missing. Suspecting Jia of theft, he hastened to Jia’s home and demanded an answer.
+
+Jia, with calm resolve, confessed, “I took twenty yuan from the old woman.” From a drawer he produced the very sum and handed it over. Huang Gang, enraged, hurled curses and struck Jia thrice with his foot. Returning home, Huang Gang’s sister revealed that she had hidden the twenty yuan beneath their mother’s pillow all along. Bewildered, Huang Gang rushed back to Jia’s door, fell to his knees, and implored, “If you did not steal from my family, why then confess such a thing?”
+
+Jia replied, “Your mother’s life hung by a thread; she must not be disturbed. Had the money not been found, her heart might have been shaken to death. For her health and life, I chose to bear this shame. I trust that truth will emerge in time. If my humiliation can buy your mother’s life and health, then it is a price well paid.” Hearing this, Huang Gang’s face burned with shame, and his heart was heavy with remorse.
+
+On another occasion, a young girl came to Jia, pleading for him to heal her mother. Together they reached the river crossing, but the ferry was full. When Jia stepped aboard, the boatman ordered him off. The others clamored for Jia’s passage, but the boatman stood firm. The girl, seeing this, wept and knelt before the boatman, begging mercy so that Jia might cross and tend her mother. Still, the boatman refused.
+
+Jia said, “Very well, let the others cross first. I will wait for the next boat.” The boatman replied, “Wait until nightfall if you will; I shall not ferry you across.” When asked why he would deny Jia passage, the boatman fell silent. Jia and the girl stood on the shore, gazing long and sighing at the river’s flow.
+
+Midway across, a sudden whirlwind struck the boat, overturning it. All aboard were cast into the water and perished. The boatman swam ashore and then revealed to Jia, “Last night I dreamed thrice: first, the Earth Lord told me not to ferry you tomorrow; then, the River God warned me likewise; at dawn, the Compassionate Navigator appeared and repeated the command. They said your crossing would bring me harm, so I dared not carry you. Now I understand why. Truly, good begets good, and evil begets evil.”
+
+From the depths of his heart, Jia the Benevolent gave thanks to the celestial beings for their profound protection and favor.

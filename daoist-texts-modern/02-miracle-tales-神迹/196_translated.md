@@ -1,0 +1,21 @@
+# The Story of Underworld Money at the Great Dragon Cavern Daoist Temple in Zhaotong, Yunnan
+
+When one mentions underworld money or dragon notes, most people think of them as mere folk customs. Yet from the Daoist perspective, these objects harbor profound mysteries, reaching into the Three Realms of Heaven, Earth, and Humanity. Below is a tale from the 1980s at the Great Dragon Cavern Daoist Temple in Zhaotong, Yunnan, concerning such underworld money.
+
+In Zhaotong, Yunnan, there stands the Great Dragon Cavern Daoist Temple. At that time, the temple’s head was Daoist Master Dai Mingchun. When religious activities resumed normalcy in the 1980s, the Great Dragon Cavern Temple sought to meet the demands for ritual services. They procured a printing template for dragon-note style underworld money and used it to produce large quantities of these notes for ritual use.
+
+After some time, the temple’s atmosphere grew unsettled, no longer pure. Strange occurrences became frequent, culminating in a small fire during one ritual session. These anomalies caught Master Dai’s attention. Since he and Master Chen were fellow disciples, he invited Chen to use the “Perfect Light” method to investigate the cause. What they discovered was startling: in the temple’s storeroom, there lay heaps of already burned underworld money—though this was the scene as it appeared in another dimensional layer. These notes had been burned in past rituals as offerings to lonely wandering spirits and the local Earth Deity, but all had been returned—rejected in the underworld as counterfeit currency! The ghosts felt deceived and stirred great unrest within the Great Dragon Cavern Temple.
+
+Master Chen then burned several notes of this very batch on the spot and instructed five ghosts to take them to the Fengdu Money Treasury (bank) for appraisal. Soon, the five ghosts returned, faces heavy with disappointment. Indeed, the notes were counterfeit, and the Fengdu Money Treasury had reprimanded them sharply. Master Chen then opened a ritual altar and negotiated with the “supervisor” of the Fengdu Treasury, but the other side refused to give a clear answer.
+
+Left with no choice, Master Chen summoned the ancestral spirit Qiu. Qiu said he could not resolve the issue. Then Master Lü was invited, but the result was the same. The problem of these underworld notes affected the entire social stability of the underworld; it was not something any one immortal could decide alone. Realizing the gravity, Master Chen performed a ritual to send his primordial spirit to the Heavenly Court. Passing through the Southern Heavenly Gate, he reported the matter and proceeded to the Doushuai Palace to petition the Most High Patriarch of the Dao in person.
+
+The Most High Patriarch listened to the entire account, nodded with a smile, and took up a vermilion brush to draw a cross upon the dragon-note underworld money template, signaling his approval. Master Chen then took this marked note to the Lingxiao Treasure Hall to pay respects to the Jade Emperor. The Jade Emperor instructed: from now on, a seal must be stamped on the back of this dragon-note style underworld money. The seal’s upper part would bear three hooks (symbolizing the Three Pure Ones), and below it, a golden character. Only thus could the notes circulate and be accepted.
+
+Returning, Master Chen immediately commissioned the temple to carve the seal. After ritual forging and consecration, he stamped ten dragon-note bills with the seal and burned them. Again, five ghosts were sent to the Fengdu Money Treasury for verification. This time, the five ghosts returned joyfully, clutching large bundles of small-denomination underworld money. It turned out that nine sealed dragon-note bills had been exchanged for these, while one was kept on file at the Fengdu Treasury.
+
+Thereafter, the Great Dragon Cavern Temple promptly burned vast quantities of dragon-note underworld money bearing the Three Pure Ones’ golden seal, repaying old karmic debts. The ghostly multitudes, having received their rightful underworld currency, ceased their disturbances.
+
+Since then, this dragon-note underworld money with the added seal has spread widely throughout Yunnan, Guizhou, Sichuan, and other regions—and remains in use to this day…
+
+![](/media/202305/2023-05-09_160238_0451370.5524907462583173.png)

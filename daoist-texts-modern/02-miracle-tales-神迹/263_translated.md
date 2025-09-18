@@ -1,0 +1,17 @@
+# The Story of Wu Xiuli from Hebei and the Spirit Infant of the Aborted Child
+
+Wu Xiuli, a native of Lincang in Hebei, was about twenty-five or twenty-six years old one year when she dreamed of a cluster of flesh—a round, pulsing orb—that suddenly leapt into her embrace. Yet, Wu Xiuli’s heart was unsettled, displeased by this strange visitor, and the flesh-ball slipped away, bounding off to rest upon her younger sister, Wu Xiuying.
+
+Upon awakening, Wu Xiuli found the dream curious and shared it with her sister.
+
+At that time, Wu Xiuying was attending university. Before long, she began a romance with a young man from society. Wu Xiuli cautioned her sister, saying, “This man’s character is flawed. I have heard that he once had a fiancée who could not endure his constant wandering and dalliance with other women, so she left him. You would do well not to waste your youth on him.” But Wu Xiuying would not heed her sister’s warning. Meanwhile, Wu Xiuli herself was busy planning her own wedding with her fiancé and did not press the matter further.
+
+Soon after, Wu Xiuying became pregnant. The family learned of this and asked her, “Will you marry this man? If not, then you must terminate the child.” Feeling the man unreliable, Wu Xiuying chose to have an abortion at the hospital.
+
+That very year, during the Zhongyuan Festival—the Festival of the Hungry Ghosts—a large section of the ceiling in the Wu household collapsed. From then on, the two sisters were often visited in dreams by a bloodied infant, grinning with bared teeth in a grim, unsettling smile. Wu Xiuying’s mood grew unstable; at times she would be cheerful, then suddenly flare into anger, accusing her sister, “This is all your fault.”
+
+Wracked with guilt, Wu Xiuli sought out a Daoist master at the temple and recounted the entire story. The Daoist said, “All matters in the world arise from causes and conditions. At the time you were preparing to wed, the spirit of that infant was drawn to you, seeking incarnation. When you did not marry, the infant’s spirit shifted to your sister. In the hidden workings of destiny, all is predestined. You need not bear excessive blame. Yet, because this infant was aborted and could not incarnate, unrest has fallen upon your household and its inhabitants. It is urgent to perform transcendence rites so the spirit may find release.”
+
+Wu Xiuli bowed deeply and pleaded, “Please, Daoist master, instruct me in the method of salvation!” The master replied, “Ordinarily, departed spirits may be liberated through the Yellow Register fasting and transcendence rites. But aborted infants, women who die in childbirth, warriors fallen in bloody battle, and those who die with great bloodshed are bound in the Blood Lake Hell. This deep and shadowed lake of blood lies beyond the reach of the Yellow Register. Only by observing the Three Primal Dharma Repentance on the Zhongyuan day can their sins be cleansed; only by performing the Great Blood Lake Fasting can the spirits trapped in the Blood Lake be liberated.”
+
+Wu Xiuli implored the master’s compassion and offered several pieces of ritual gold, requesting that he conduct the Blood Lake fasting rites on Zhongyuan day to save the infant spirit. The ritual was carried out with solemn grandeur; the infant spirit found incarnation, and the household was blessed with peace and prosperity. Grateful beyond words, Wu Xiuli transmitted this profound and wondrous method, praising the Most High’s boundless mercy.

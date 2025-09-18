@@ -1,0 +1,15 @@
+# The Matter of Liu Zhichang from Anhui Requesting a Buddhist Talisman
+
+Liu Zhichang, a native of She County in Anhui, some years ago journeyed to Thailand and spent tens of thousands of taels of silver to request a little ghost talisman. This was a yin talisman crafted by a Thai dharma master, made by a local sorcerer, within which was placed the bone ashes of a female infant spirit. Upon his return, he wore it around his neck, and then whenever he went out gambling, he won almost every day, his heart filled with joy. He thought to himself, “Those tens of thousands were well spent; the Buddhist talisman truly is efficacious.”
+
+Yet the good fortune did not last long. Before long, Liu began to suffer from sleeplessness. One night, as cold winds of the netherworld swept through his chamber, he suddenly opened his eyes and saw a little girl standing at his bedside. A sense of foreboding gripped him; overcome with fear, he immediately cast the talisman away.
+
+But the tale did not end there. From that moment on, his household was beset by turmoil. Every night, as he lay down and closed his eyes, he heard the voice of the little girl calling him “Father.” His wife, heavy with child, was likewise afflicted and suffered a miscarriage.
+
+Driven to desperation, Liu sought divine guidance and consulted various spirit mediums, but none could resolve the matter. Eventually, he entrusted word to a renowned Daoist priest of the Zhengyi lineage from Liu’an, surnamed Wu, with the dao name Dingye. This priest was a successor of the Celestial Master’s orthodox law, bearer of the Oath of Awe Scripture and talismanic registers, born into a family of Daoists. From childhood he had studied the dao arts; his yin-yang vision was open, skilled in drawing talismans, capturing ghosts, and expelling evil to heal disease.
+
+Upon arriving at Liu’s home, he asked, “Did you invite a yin entity?” Liu confessed, “I invited a little ghost in Thailand.” Master Wu said, “That little ghost is right here in your home.” Filled with dread, Liu implored the Daoist’s mercy and protection.
+
+Master Wu then selected a day of heavenly calamity and stellar might, setting up a ritual altar. At Liu’s house, he performed a Lingbao Refining and Deliverance ceremony, sending the little ghost away. Then he chanted several scrolls of the *Jade Pivot* and the *Eastern Peak* scriptures, purifying the household of all filth and evil. He admonished Liu, saying, “Never again invite such things. Whether little ghosts or Buddhist talismans, the initial good fortune is but an early consumption of your allotted blessings. Once your blessings are exhausted, calamity inevitably follows. Moreover, ghosts belong to the yin class; to draw near them is inauspicious, bringing sickness and poverty. One must be cautious indeed.”
+
+Before departing, he presented a spiritual talisman to Liu’s household, instructing that it be hung behind the door to ensure safety and peace.

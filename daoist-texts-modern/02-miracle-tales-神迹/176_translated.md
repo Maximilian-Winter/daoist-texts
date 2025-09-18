@@ -1,0 +1,18 @@
+# The Record of the Daoist from Xichang and the Practice of Planchette Writing
+
+Li Xuande, a Daoist of the Guangcheng Altar, hailed from Xichang in Sichuan. In his early years, he entered the dao, mastering without exception the arts of Qimen, celestial phenomena, and rites of prayer and exorcism. Yet by nature he was free-spirited and romantic, often saying, “To be uncommon is to bear the immortal bone; to be passionate is to possess the dao heart.” He also once studied the ancient qin and poetry, pouring the stirrings of spring and the longings of autumn into verse and song.
+
+In the spring of the gengyin year, Li Xuande spoke with his companions and close friends: “Now the spring light is bright and fair, flowers gleam and willows shade, orioles sing and swallows chatter. Yet within the study, all is dull and tedious—why not try some planchette writing for amusement?” All agreed with delight. They burned incense and invited the spirits. After some time, the rice sieve trembled, and a numinous presence descended. Li Xuande inquired, “Pray, who is the immortal spirit that comes?” The answer came: “I am the humble Daoist Zhao Lanqing, once a female priestess of the Court of Heavenly Ascent in the Great Ming. During the upheaval of the jiashen year, I died for my country, casting myself into a well—now three hundred years have passed.” In their exchange, the priestess’s words were refined and gentle, her literary grace evident. From then on, whenever Li Xuande had leisure, he would summon the planchette and converse with this female priestess.
+
+Li Xuande said, “To receive your descent upon the true altar is truly a matter of fate! Might you reveal your form so I may behold your immortal visage?” The immortal demurred repeatedly but finally consented. He beheld a female priestess, her skin fair and flawless, her bearing like fragrant orchids. She wore a robe of feathers as white as snow, cloud-like shoulders and rosy silk cape, feet shod in embroidered shoes patterned with auspicious motifs, her jade pendants tinkling radiantly, shining with ethereal light. When they spoke of the Ming dynasty’s affairs, all was vivid and clear, and she lamented the cruel calamities of those times with heartfelt regret. Li Xuande asked, “Immortal, having died for your country so many years, why do you not reincarnate as a human?” She replied, “I died with a heart loyal and steadfast to my sovereign, bound by love for the realm and people. Thus my spirit remains unextinguished, dwelling in a grotto where I cultivate stillness for many years. To reincarnate would be to begin all anew. Better to choose a quiet place, continue my practice, and when my merit is full, the Elixir Decree will come to summon me.”
+
+Li Xuande, seeing Lanqing’s graceful and refined presence, her breath fragrant as orchids, wished to speak sincerely but dared not utter a word, so he entrusted his feelings to poetry:
+
+> “The mysterious courtyard lies deep and silent,  
+> Alone I sit, cherishing the fragrant spring.  
+> Far away I imagine your orchid chamber—  
+> Surely you pity this deep longing?”
+
+Lanqing, reading this poem, said, “The grotto’s purity and emptiness have long made me unaccustomed to talk of men and women. After the peach blossoms in the third month, the azure phoenix will watch over you.” From that time forth, she no longer descended. Li Xuande regretted his rashness at that moment.
+
+In the autumn of the gengyin year, Li Xuande met a fair lady at the Azure Phoenix teahouse in Jinli, Chengdu. Her voice, bearing, and demeanor were remarkably like Zhao Lanqing’s. The humble Daoist had once heard that humans possess three souls and seven spirits—could what Li Xuande saw be but one soul of her?

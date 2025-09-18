@@ -1,0 +1,17 @@
+# The Gate of Mouth and Tongue
+
+The *Yijing* says: “Gen supports its flank,” meaning there is order. It also says: “Refine your words and establish sincerity; thus one dwells in one’s work.” The Supreme Sage declared: “The gentleman desires to be slow in speech but swift in action.” The Venerable Ancestor said: “Close the gate of Dui, seal its door, and a lifetime of toil will not be needed.” All these teachings instruct people to be cautious in speech and forbid reckless words.
+
+For the mouth and tongue are the gateways of giving and receiving, the very roots from which right and wrong sprout. They govern one’s integrity and bind one’s virtue. Here lies the boundary between gentleman and petty person, the dividing line between the upright and the crooked. To invite calamity or summon blessing, to achieve success or suffer failure—all are determined by this.
+
+Therefore, the gentleman deliberates before he speaks. What is fit to say, he says; what is unfit, he does not. Sometimes words benefit the world, the dao of humanity and Heaven’s will; sometimes words cause people to turn toward goodness and amend their faults; sometimes words urge one to abandon evil and return to righteousness; sometimes words ease another’s hardship and untangle their troubles; sometimes words conceal faults and exalt virtues. But never are words spoken lightly, falsely, or idly.
+
+This is not to say one should keep silent forever, but once a word escapes the mouth, even a team of four horses cannot chase it back. Instantly, fortune or calamity is revealed. Words must not be spoken without care. If speech is reckless, even if it harms no one else, it will bring blame upon oneself.
+
+The harm wrought by mouth and tongue is like a blade’s edge, their poison like deadly hemlock—how could it be slight? Yet in this muddled world, many seekers of learning do not discern harm from benefit. They think the movement of mouth and tongue is trivial, that convenience is talent, that eloquence is success. Some expose others’ faults; some boast of their own strengths; some tell lies and weave deceit; some argue right and wrong falsely; some speak one thing and later break trust; some speak empty words but act not swiftly; some utter wild boasts and stir calamities; some talk grandly but accomplish nothing; some curse openly in broad daylight; some use cunning words to slander and flatter; some ruin affairs by speech; some wound others by words. All these are words that harm and never help.
+
+What value is there in speech? It is better not to speak at all.
+
+I urge those with true hearts who seek the dao to swiftly close the gate of mouth and tongue. Let not the mouth open recklessly, nor the tongue move wantonly. Speak not what is improper; words must be spoken with propriety. Cultivate your expressions and establish your sincerity; be cautious in speech and prudent in action. Never be careless with words; every word must strike the mark.
+
+Moreover, speech is the voice of the heart, the tongue the sprout of the mind. If the movement of mouth and tongue is not upright, it reveals the heart-field is crooked. When the heart-field is crooked, the root is already rotten, nature is obscured, destiny shaken, spirit dimmed and injured. To harbor wild thoughts and yet illuminate the dao and cultivate the dao—how difficult that is!

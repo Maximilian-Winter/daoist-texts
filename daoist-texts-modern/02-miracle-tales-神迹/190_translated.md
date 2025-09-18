@@ -1,0 +1,13 @@
+# The Custom of Slaying the Plague Demon and Ascending Heights to Avoid Pestilence on the Double Ninth Festival
+
+It is told that during the Eastern Han period, along the banks of the Ru River, there dwelt a plague demon. Whenever it appeared, households one after another fell ill, and every day brought fresh deaths. The people of this region suffered grievously under the demon’s ravages, their misery beyond description.
+
+At that time, in Runan County, there lived a young man named Hengjing. One year, the pestilence claimed his parents, and he himself narrowly escaped death. After recovering, Hengjing bade farewell to his beloved wife and the elders and villagers of his hometown. Resolute in heart, he set out to seek immortals and learn their arts, determined to rid the people of this scourge. Through trials and hardships, he finally found, deep within an ancient mountain, an immortal of boundless power. Moved by Hengjing’s tireless spirit and his will to deliver the people from harm, the immortal took him as disciple, gifting him a treasured sword to subdue demons and secretly imparting the sword techniques to vanquish evil. Hengjing, forsaking sleep and rest, practiced day and night until he had mastered extraordinary martial skill.
+
+One day, the immortal summoned Hengjing close and said, “Tomorrow is the ninth day of the ninth month. The plague demon will once again emerge to wreak havoc. Now that your skill is complete, you must return to rid the people of this evil!” With these words, the immortal gave Hengjing a bundle of cornel leaves and a flask of chrysanthemum wine, teaching him a secret method to ward off evil. Without delay, Hengjing mounted a celestial crane and hastened home.
+
+Upon returning to his village, on the morning of the ninth day of the ninth month, Hengjing led the villagers to a nearby mountain as instructed. He distributed to each person a cornel leaf and a cup of chrysanthemum wine. By midday, fierce winds howled, the north wind rose abruptly, and the sky darkened as the earth grew dim. Amidst piercing, mournful cries, the plague demon burst forth from the Ru River, rushing toward the foot of the mountain.
+
+At that moment, the demon suddenly caught the strange fragrance of the cornel leaves and the mellow aroma of the chrysanthemum wine. Its face changed color, trembling with fear, and it dared not advance. Swift as thought, Hengjing, sword in hand, charged down the mountain. After a fierce battle lasting several exchanges, Hengjing pierced the plague demon through and through, slaying it and ending the pestilence.
+
+From that day forth, on the ninth day of the ninth lunar month, the custom of ascending heights to avoid pestilence has been passed down year after year.

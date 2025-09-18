@@ -1,0 +1,87 @@
+# Chapter Ninety-Six: Brewing Wine and Borrowing Flowers—Two Trials of the Immortal Arts at Blue Pass and the Nine Crossings of Qinling, the Story of Master Wen
+
+Now it happened that Han Yu, having heard Xiangzi’s repeated urgings to cultivate the dao, was suddenly filled with anger. He ordered men to drag Xiangzi inside and entrusted him to the care of his mother, the venerable Madam Xu. Yet Madam Xu had by then come to firmly believe that Xiangzi had truly attained the dao. Xiangzi himself was a man of considerable talent and broad understanding; thus, she did not insist on forcibly detaining him. Instead, she said to him, “Your uncle hopes you will grow up and establish yourself—that is the duty of an elder. Since you are able to cultivate immortality and attain the dao, you are following your own path. I need not strictly heed your uncle’s words to force you against your will. But one thing I must make clear: since you possess divine powers and numinous arts, drifting through clouds and mist, east and west, it is of little consequence. Yet you must often return to visit your old mother. When my time comes and I close my eyes in death, then you may do as you please—whether to come or not will be your own choice.”
+
+Xiangzi replied, “Mother, please rest assured. The dao values loyalty and filial piety above all. If I lacked a mother’s heart, how could I return to see you? Would I not be no better than beasts? How could my two immortal masters accept me as their disciple otherwise? Mother, have no fear. So long as I apply myself diligently, in a few years my future will be boundless. When the day comes that I ascend to Heaven, you will surely still be in this world. I will then lead you out of the mundane realm so we may share the blessings of longevity together.” Hearing this, Madam Xu was comforted. Seeing that awakening his uncle was futile, Xiangzi returned to Mount Song.
+
+Several years passed from then on. Every two or three years, Xiangzi would return home, manifesting extraordinary spiritual signs to show his uncle. But Han Yu was by nature stubborn and unyielding; no matter how eloquently Xiangzi spoke or how vividly he demonstrated his powers, Han Yu remained unmoved, continuing his own affairs and dismissing Xiangzi from his sight. Yet Xiangzi was resolute and would not give up; he was determined to save his uncle. He enlightened him seven or eight times in all. At the eighth occasion, coinciding with Han Yu’s eightieth birthday, Xiangzi came to offer felicitations and then returned home.
+
+Han Yu, mindful of his advanced years and moved by his nephew’s distant journey, felt his usual resentment toward Xiangzi soften greatly. When the banquet began, he even ordered Xiangzi to take the host’s seat and converse with the assembled nobles and guests. Each guest, knowing Xiangzi was truly a daoist immortal, eagerly sought the secret of longevity and the methods to delay aging. Xiangzi spoke at length, freely imparting simple, practical methods beneficial to body and mind. This only stirred Han Yu’s anger anew. He said, “Xiangzi, you should not speak such heresies before me.” Then he summoned him and asked, “You speak with the eloquence of a flowing river, recklessly babbling before so many elders. Tell me, when did you learn these arts outside?”
+
+Xiangzi, hearing this, casually recited:
+
+> Green mountains, clouded mountain caves—this place is my home.  
+> At midnight, I feast on jade nectar; at dawn, I chew crimson clouds.  
+> The zither plays a jade melody; the furnace refines white cinnabar.  
+> The treasured cauldron holds the golden tiger; the field of herbs nurtures white crows.  
+> A single gourd conceals creation; a three-foot blade cleaves demons and evil.  
+> I brew the elusive wine that can open flowers in an instant.  
+> If anyone can learn from me, together we shall behold the immortal blossoms.
+
+Han Yu roared, “This fellow is spouting madness!” But the guests said, “Since he boasts so boldly, he must have the skill. We have no chance to witness his wondrous powers, but today we are lucky to meet him. Why not ask him to show some marvels, to open our eyes and enrich our knowledge?”
+
+Han Yu said, “He claims to brew wine that makes flowers bloom—let him prove it.” Xiangzi smiled and said, “These are but minor arts, unrelated to the true Great Dao. Yet I shall obey the imperial command, brewing wine to honor my uncle’s longevity and opening flowers to entertain the guests. But what I truly hope for from my uncle lies beyond these trifles. If I were to lure you with mere baubles, that would be great disrespect.”
+
+Han Yu said, “You may talk endlessly, but words are useless. Why not just do it?” Xiangzi said nothing, but ordered an empty vat brought forth and placed in the courtyard. He covered it with a cloth, snapped his fingers thrice, and chanted softly. When the cloth was lifted, the vat was indeed filled to the brim with fine wine. Xiangzi first offered it to Han Yu, then served the guests one by one, laughing, “Esteemed gentlemen, this wine is no ordinary brew but the jade nectar of the immortal realm! Whoever drinks a cup will extend their years by a decade and be cured of chronic ailments.”
+
+The guests eagerly drank. Xiangzi then singled out several honored guests, saying, “Lord So-and-So, Minister Such-and-Such, you all suffer from certain old ailments, which shall now be healed.” The others were skeptical, but one Lord Liu, who had asthma, drank a cup and immediately found his phlegm cleared, breath evened, and chest at ease. He exclaimed loudly to Han Yu, “Sir, your nephew is truly a daoist immortal. Setting aside everything else, this cup of immortal wine has instantly cured my lifelong illness. Is this not a wondrous immortal art?”
+
+Han Yu, whose health had declined in recent years with chronic back pain, deafness, and blurred vision, found his eyes brighten, ears regain hearing, and back grow strong and comfortable after drinking. Deeply moved, he nodded and smiled at Xiangzi, saying, “Well done indeed. Now show us the method of making flowers bloom to accompany the wine.”
+
+Xiangzi complied and asked the guests what flowers they wished to see. They deliberately named several out-of-season blooms. Xiangzi said, “Such flowers are long dead or withered; where would I find their seeds now?” Han Yu shouted, “So half of what you say is nonsense!” Xiangzi laughed, “Uncle, do not be impatient. Today is your great birthday. I have come from afar for a reason. If I could not even conjure such trifles for you, it would be most disrespectful. Since these flowers do not exist in the world, I must borrow them from the Queen Mother’s garden.”
+
+Han Yu asked, “How far is the Queen Mother’s garden from here?” Xiangzi replied, “By ordinary measures, even riding clouds it would take three to five years. On foot, a mortal would need two or three thousand years. But in the immortal realm, the unreal is made real, and the real is but illusion. The Spirit Mountain lies within the Spirit Platform; the immortal realm is but a speck in the mind. I see all worlds, inside and out, with nothing beyond my gaze. The Queen Mother’s garden is but a gate beyond a gate.”
+
+Having said this, Xiangzi stepped into the courtyard and beckoned to the empty sky. The guests heard several cries, and many white cranes flew in. Xiangzi smiled and said, “Do not laugh, gentlemen; these are all my companions from past lives. Now I shall send them to borrow flowers.” The guests praised his care. Xiangzi gave a few commands to the flock, and the cranes soared high into the clouds, vanishing in an instant.
+
+Xiangzi returned to the banquet and drank with the guests. Soon, the sound of cranes echoed loudly again. Everyone rushed outside and looked up, seeing countless white cranes bearing myriad famous flowers. Xiangzi said, “The Queen Mother has taken pity on this poor Daoist. Since the cranes I sent were insufficient to carry all the flowers, she specially dispatched her immortal cranes to accompany them back.” Before he finished, the cranes gathered in the courtyard and rolled on the ground, each transforming into a fair-faced youth who helped carry the flowers into the hall.
+
+The guests gazed upon the blossoms—flowers native to various regions, blooms of all seasons, and many never before seen by mortal eyes, their colors dazzling and fragrance filling the room. Among them stood a large pot of turquoise flowers shaped like peonies, immense in size. Between the blossoms shimmered two lines of poetry:
+
+> Clouds stretch across Qinling—where is home?  
+> Snow blocks Blue Pass—the horse cannot advance.
+
+Han Yu asked, “What does this mean?” Xiangzi said, “It speaks of your future, uncle. Heaven’s secrets are hard to reveal; I dare not prophesy. In any case, keep it in your heart; it will come to pass.”
+
+Seeing his uncle inclined toward belief, Xiangzi earnestly urged him further after the banquet. But Han Yu’s worldly attachments remained, and he still would not listen. Xiangzi could only say, “Take care until we meet again,” and returned to Mount Song.
+
+A year or so later, Han Yu, having offended the court by petitioning to welcome a Buddha’s relic, was exiled to the southern region of Chaozhou in Lingnan. The day of departure was set. Han Yu took two servants with him and set out. After traveling some distance, they missed their lodging and heavy snow began to fall. Cold to the bone and hungry, the aged man found himself near collapse. The two servants huddled beneath a tree, not tending their master but complaining bitterly. Han Yu sighed up at the sky, “I, Han, have been loyal and upright all my life, devoted to the sacred dao. Why must I suffer such misfortune in my old age?”
+
+The servants shouted, “Master, do not utter such complaints. You served well in court, but why speak recklessly and anger the sovereign? This punishment is your just deserts. We two only hoped to settle and prosper under your roof, but have gained no benefit and now share your hardships. The road ahead is long, and Chaozhou is known for its miasma. We have owed you much kindness, yet accompany you into such misery. It is not worth it. We must part ways. Our families depend on us; we cannot risk our lives for yours. Farewell.”
+
+Han Yu was shocked. “If you two leave me, this old man will surely starve and freeze on the road!” They sneered, “You speak coldly. You care only for your own life, but have you thought that our lives are even more precious?” Han Yu recalled his lifelong kindness to servants, especially these two whose families had served his household for generations. For this exile, he had specially chosen them for their close ties. Yet they could not endure hardship and now openly rebelled. He tried to reason with them, but to no avail. Angered, he scolded them, but they would not relent. They packed his belongings and fled.
+
+Knowing he could not catch them, Han Yu followed on, but in this snowy wilderness, with no village ahead or inn behind, he was trapped between hunger and cold, utterly exhausted. All around was a vast expanse of snow, stretching for tens of miles without end. Only his white horse remained, spared by the two thieves. No other animals were in sight; no humans either. Han Yu, caught in this desperate plight, feared he could not survive the night. Beyond that, whether he could find a village or reach Chaozhou was uncertain. At his age, would he end up begging in the world? Poverty is unavoidable, but if he could not reach Chaozhou, better to die early and spare himself further suffering.
+
+Though he thought thus, night was falling. Surrounded by endless white, he wished to die but did not know how to do so swiftly or cleanly. After long hesitation and no solution, he spurred his horse forward. The horse, overcome by cold, collapsed and refused to rise, throwing its master into the snow, motionless. Han Yu felt no great sorrow. He thought, “To die as a guest, suddenly and violently—better to die by snow than by sword, poison, hanging, or drowning. As a minister, I must endure the law of the state and not resort to common suicide. Now that death comes naturally beneath the snow, is this not a fitting end?” He clenched his teeth, closed his eyes, and ignored the large snowflakes beating his body, the fierce north wind tearing his face, and the horse’s mournful neighs, waiting quietly for the end.
+
+Yet the affairs of Heaven are fixed. Those not destined to die will survive even the jaws of the tiger and the edge of a thousand blades. Han Yu, a celestial official exiled to the mortal realm, had endured the harshest tribulations. According to the principle that extreme misfortune turns to fortune, and utter loss returns to gain, his darkest hour was the turning point. Even if he sought death, how could he die?
+
+After long stillness in the snow, night deepened. Though the snow still fell, the world became a silvery realm like quicksilver. Unable to endure, Han Yu opened his eyes and was astonished. Though he was in snow, the black sky and white clouds had vanished. The barren plain he had crossed with no villages was gone. Instead, he found himself inside a cool pavilion. Not only he, but his white horse lay curled on the floor, breathing softly.
+
+Han Yu was bewildered, suspecting a dream. Suddenly his spirit revived; he struggled to sit up and looked around. The pavilion was no ordinary rest stop but a finely crafted, spotless chamber. Its furnishings were complete with all household utensils, unlike anything he had seen before. More astonishingly, on a couch opposite sat a young Daoist. The Daoist sighed and slowly approached, then suddenly bowed deeply and smiled, saying, “Uncle, do you still remember your nephew Xiangzi?”
+
+Han Yu looked closely and saw none other than his nephew Han Xiangzi standing before him, smiling and speaking. He realized Xiangzi had used his divine power to come to his rescue. Joy filled his heart as never before; from that moment, he felt the greatest delight since meeting Xiangzi.
+
+Moved, Han Yu embraced Xiangzi, tears flowing, choking with emotion. “My son, how could I have imagined meeting you here? Are we not meeting in a dream?” Xiangzi helped him to the couch and blew three breaths upon him. Instantly, Han Yu felt renewed vitality; warmth suffused his body, and his spirit soared. He forgot the torment of snow and cold, as well as the hardships of recent days. Rising, he walked a few steps and saw his white horse still breathing weakly, near death. He asked Xiangzi to heal it. Xiangzi blew upon the horse, which sprang up and nodded to its master, showing a sense of parting and reunion.
+
+Xiangzi sighed, “If even beasts suffer so, how can humans bear it? People chase fame and profit, striving and scheming, but in the end, to live to a natural death is already a great blessing. Is it not pitiable? Is it not lamentable?” Han Yu now fully recognized the greatness of the immortal dao and turned his heart toward the celestial path. Reflecting on past times when he had driven Xiangzi away, he felt deep remorse. Xiangzi understood and comforted him.
+
+Han Yu asked, “Where is this place?” Xiangzi smiled, “Do you not remember the poem about flowers? This place is called Blue Pass.”
+
+Before he finished, Han Yu suddenly understood and exclaimed, “Fate is predetermined, indeed so! I recall your verses. Now that we meet here, it must be commemorated.” He then loudly recited the poem in full:
+
+> A memorial petition to the Nine Heavens at dawn,  
+> At dusk, exiled eight thousand miles to Chaozhou’s road.  
+> Born to remove corrupt governance with sage rule,  
+> How dare I cherish my waning years in decay?  
+> Clouds stretch across Qinling—where is home?  
+> Snow blocks Blue Pass—the horse cannot advance.  
+> Knowing you come from afar with purpose,  
+> Prepare to receive my bones by the riverbank.
+
+From then on, Han Yu devoted himself to the dao. Xiangzi led him to meet Masters Zhong and Lü, who explained his past lives. Han Yu was supremely wise and blessed with celestial fate, so enlightenment came easily. Within ten years of cultivation, his heart and nature were clear. Later, on Mount Shaoshi in Henan, he attained the dao, guided by the constellation of Venus and its stars, ascended to Heaven to pay homage to the Jade Emperor, then returned to his original post. This is the story known in the world as Han Xiangzi’s ninefold trials of Master Wen. Enough said.
+
+As for Xiangzi, after saving Han Yu, he returned to rescue Madam Xu, who had become an earthbound immortal, thus completing his own affairs. Then he returned to Mount Song to study the profound scriptures and continue his research. By the Northern Song dynasty, Wang Yizhi was saved by Master Iron Crutch and reborn into the human world as the younger brother of Empress Cao, named Da. Known as Lord Cao of the State, he devoted himself to the dao, unattached to worldly affairs. Master Iron Crutch sent Lüzu and Xiangzi to test him, finding his resolve strong. Xiangzi stayed at Lord Cao’s residence, personally instructing him in the great dao. Thus, a curious event occurred.
+
+What that curious event was, see the next chapter for the unfolding.

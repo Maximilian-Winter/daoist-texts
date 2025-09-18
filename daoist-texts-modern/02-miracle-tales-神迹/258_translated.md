@@ -1,0 +1,15 @@
+# A Woman of Luoyang in Henan Performs a Ritual of the Dipper to Expel Evil, with Verified Effect
+
+In Luoyang of Henan, there lived a woman surnamed Sun, who for many years was tormented by malevolent spirits. Her body was icy cold, her belly gurgled incessantly, and at night when she lay down to sleep, there would be persistent knocking at her door. Yet whenever she opened it, nothing was there. Such disturbances plagued her for many years. She sought doctors and medicines, but all to no avail.
+
+She recounted that when she was in her twenties, after giving birth and during her confinement at home, she heard a child crying outside the door at night. She opened it to look, but the child had vanished. Instead, a shaft of light flew into her body. Then she saw a man in the courtyard saying, “That thing is now your burden to bear.”
+
+Though Sun appeared outwardly like any ordinary person, the invasion of these spirits left her entangled and her mind often unclear. Many years passed, and now in her forties, her countenance was dim, her vital energy withered, and her hair streaked with white. Hearing that Daoist Master Rao of Chongzhen Palace on Mount Hezao in Jiangxi was skilled in the ancient Lingbao methods, Sun, long admiring the secret arts of Daoism—those with power to revive the dead and dispel calamities—came to Guangxin Prefecture to seek out Master Rao, bowing her head in earnest supplication.
+
+The Daoist Master, moved by her suffering, examined her fate and discerned that this was a karmic grievance from a past life, whose retribution had now come full circle. He promised to deliver her from it.
+
+Thus, he established a sacrificial altar and, following the prescribed rites, performed the ritual of the Dipper, burning the seven talismans of the Golden Mysterious Feather of the Northern Dipper. He summoned the celestial troops of the Jade Court, the officers of the Dipper Mansion who resolve grievances and untie knots of karmic entanglement. Each flew like clouds and lightning, riding cranes and striding dragons, wielding axes and halberds, treading upon auspicious clouds. Their blades flashed brilliantly; their ranks were formidable and awe-inspiring.
+
+At times, Sun prostrated herself upon the ground, sweat streaming without end; at others, she wailed aloud, lifting her voice to the heavens in long, sorrowful sighs. Yet the voice was that of a man, not her usual tone. After about the time it takes for one incense stick to burn, Sun regained clarity, her expression radiant with joy. She said, “Just now, it seemed a general came, leading a troop of soldiers, and took away that thing clinging to me. Now I feel so much lighter. I thank Master Rao deeply for his grace!”
+
+The *Scripture of the Northern Dipper* says: “The Great Saints, the Seven Primordial Lords of the Northern Dipper, can dispel malevolent spirits and calamities.” The Dipper can unravel all hardships and save those who honor the Way. The Northern Pole Exorcism Courtyard is specially charged with driving out demons and subduing evil. From this, it is clear that these are no empty words.

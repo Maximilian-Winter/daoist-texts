@@ -1,0 +1,9 @@
+# The Sacred Proclamation of the Household Deities
+
+With devoted heart and reverent bow, I submit myself in homage. Within the divine realm of the Sacred Land, amidst ten thousand households, all honor Heaven and follow the Patriarchs; myriad spirits gather in assembly. The Generals who guard the dwelling, the Protectors who shield the home—through countless generations, the venerable ancestors, the sacred sages of Heaven, Earth, Nation, Kin, and Teacher—together with all household deities, unite to safeguard the peace of the family.
+
+They chastise evil and exalt goodness, delivering aid to the common people. When illness and affliction strike, prayers to them bring swift healing. Should sinister arts encroach, they vanish utterly. When wind and water fall out of harmony, they transform the land into a treasured place. Calamities are dispelled, blessings and auspiciousness gather in profusion. The dwelling is purified, filth removed; at all times it is bright and fortunate.
+
+They prosper and protect the household, enabling the clan to flourish and thrive. Like silkworms spinning exquisite silk, the granaries and storehouses overflow with abundance. The work of the home is accomplished; renovations and affairs succeed smoothly. Only the deities are revered with awe and joy, their numinous grace humbly received.
+
+With great compassion and vast vows, with mighty sanctity and boundless mercy, within the hall stands the august and powerful General of the Gods, who responds to the call of myriad people as the Divine Lord, the Heavenly Venerable who guards and watches over the household.

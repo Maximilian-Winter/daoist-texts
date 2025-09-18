@@ -1,0 +1,3 @@
+# The Precious Edict of Lord Tanlang, the Star Sovereign
+
+With heartfelt devotion, I bow and surrender my life in reverent homage. Within the Purple Tenuity Enclosure, in the celestial palace of the Primordial Heaven, the Jade Pivot and the Jade Balance align, establishing the harmony of the Seven Celestial Administrations; the Jade Pool’s Golden Mirror is set forth, radiating its power to govern the myriad directions. The True Heaven measures the cosmic order upon the terraces and walls, rescuing all living beings from the ravages of flood and fire. Of great compassion and vast vow, supremely sage and infinitely kind—He is the Great Sage of the Central Heaven, the foremost radiant yang of the Northern Dipper, Lord Tanlang, Sovereign of the Great Dao Star.

@@ -1,0 +1,17 @@
+# The Story of the Coffin Exchange
+
+In the region of Nanchang, there is a folk custom: when elders reach a certain age, their family prepares coffins for them in advance, also called “longevity coffins” (shoucai), which are kept at home as a way to “press longevity.” In Wanli District, the Tang family prepared two such longevity coffins for their parents. Later, the father of the Tang family passed away first. Not long after, Tang Changzhi, the eldest son, dreamed that his father was scolding his mother, saying, “That foolish woman, she switched my coffin over there. Because of that, I can’t even sleep well—I'm utterly exhausted.” At the time, Tang Changzhi did not understand the reason behind this dream.
+
+A few years later, when Tang Changzhi’s mother passed away, the family brought out the other coffin and found it was a man’s coffin. Yet, when the elder Tang had died and was laid to rest, they had used a woman’s coffin. No wonder the dream had come to him.
+
+Now, let me tell you something from Jiangxi. During the busy summer farming season, a boy went to the fields to pump water but was electrocuted to death. Because the summer heat was fierce, and the family feared the body would decay, they placed the corpse into an electric refrigeration coffin. Later, a local spiritual medium came by. The family asked him about the boy’s death, and the medium told them, “Your child was not killed by electricity; he was frozen to death.”
+
+If this sounds somewhat mysterious, I have yet another true story to share.
+
+In Quzhou, Zhejiang, a young man had just graduated from university and was working the summer break as a driver at a factory. He suffered heatstroke and fainted; his breathing and pulse stopped. Taken to the hospital, the doctors examined him and issued a death certificate. The factory placed his body in the mortuary. The boy’s parents, who raised fish in Guangdong, heard the news and hurried back to Zhejiang to see their child one last time. Upon arriving at the mortuary, they found the black bag containing the body was open, and the boy had clawed his chest and face raw, his complexion dark and bruised. It turned out the boy had revived, but the mortuary’s storage compartments were small, enclosed spaces. When he came back to life, he found himself in utter darkness, called out but no one heard, and the oxygen inside was depleted. Eventually, he died again. The family was heartbroken and sued the hospital, but no one could bring him back to life.
+
+This shows that proper rites for the spirit’s rest are indeed necessary.
+
+In Qinghai, there was an old woman careless with her food. After her death and placement in the mortuary, she came back to life. She said that the King of the Underworld had given her some food to eat on her journey, which she kept in her sleeve. But when people searched her sleeve, it was full of maggots. She lived for a few more years before truly passing on.
+
+In Jiangsu, an old woman died, and her family was preparing her funeral. Suddenly, she revived. The family was astonished and asked what had happened. The old woman said, “I just went down and played cards with so-and-so for two days. They still owe me two coins, but I don’t want them to pay me back.” She then named a string of people—all deceased locals. After coming back to life, her health was good, and she lived several more years.

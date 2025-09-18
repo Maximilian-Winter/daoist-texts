@@ -1,0 +1,7 @@
+# Proclamation of the Primordial Marshal of the Heavenly Canopy
+
+With wholehearted reverence, I bow and submit my vow. To the left of the Six Dragons’ Terrace, within the Nine Tigers’ Gate, there appears the awe-inspiring form of three heads and six arms, wielding the majestic power of the Seven Celestial Regulators and the Eight Numinous Spirits in grand creation. The imperial bell resounds with mighty thunder, as myriad sages assemble in solemn presence; the battle-axe and halberd lightly swing, shattering legions of demons to dust.
+
+A radiant divine light blazes forth, ever vigilant in saving and protecting all beings; the true nature stands lofty and unshakable, sworn to eternally flourish upon the path of righteousness. With a single strike, corpses are cleaved across a thousand miles; fivefold forms of ghosts are severed without mercy. Boundless compassion and great vows, supreme sanctity and infinite mercy—heavenly prayers ascend, extending blessings, purifying calamities, safeguarding body and life.
+
+He is the Primordial Marshal of the Heavenly Canopy at the Northern Pole, commander of eighty-one legions, the True Lord who guards the realm and dispels demons. Having attained fruition, he is the Universal Encompassing Heavenly Venerable of the Dharma Cloud.

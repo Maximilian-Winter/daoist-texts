@@ -1,0 +1,71 @@
+# Chapter Sixty-Five: Jupiter’s Cunning Invitation to Enter the Urn — The Gatekeeper Boasts and Confesses Without a Blow
+
+Now, it happened that Dongfang Shuo arrived at the Jade Pool, and there he heard the news that the Queen Mother had journeyed far away to the Buddha’s realm. His heart brimmed with joy, and he thought: “Truly, Heaven favors my success. Since the Queen Mother is not here, naturally I need not face the band of immortal attendants under her command—better to leave no trace of a thief behind.” Well acquainted with the garden’s layout, he transformed himself into the form of a young girl, holding a flower hoe in one hand and a flower basket in the other, adorned in full regalia, and confidently entered through the main gate.
+
+By chance, the guardian deity of the garden, since the Mistress was away, found affairs idle and dull, each day dragging like a year with no amusement. So he had gathered several fellow deities at a small flower pavilion by the garden gate to gamble and play games. Dongfang Shuo chuckled inwardly: “What use is it to guard the garden with such things? Had I known this, even without the Han Emperor’s sacred edict, I old Shuo would have long ago come to pilfer a few peaches for my own delight—wouldn’t that be grand!” Just as he mused, a sudden uproar of shouting and raucous laughter burst forth from within, a great throng of men and women playing and jesting, their voices deafening.
+
+Dongfang Shuo, smiling to himself, strolled forward and casually stepped into the room. The crowd paid him no mind, engrossed fully in their gambling. He said with a smile, “You all play all day, and no one tends the garden. Won’t you be inviting a band of thieves to sneak in and steal the Peaches of Immortality? When the Holy Mother returns tomorrow and investigates, can you bear the guilt of such a crime?”
+
+The crowd turned to look, seeing a little girl, and they all scoffed, laughing: “What thieves? Even if one had the courage of a leopard’s gall or a tiger’s heart, no one would dare steal peaches here!” Another laughed, “This is the very pivot of the celestial immortals. Since the dawn of grain and land, thieves and villains can be found here and there, but in this place, these matters are punished by spells and curses—no one dares to be found out.” They went on to praise and extol the place for a while.
+
+The old garden guardian, stroking his beard, grinned broadly and said, “What nonsense! Gentlemen are everywhere, and scoundrels always present. Is there no unruly villain in this vast Jade Pool? Especially since this place is the seat of the leader of myriad immortals. Immortal gods from the Four Seas and Nine Provinces, the Five Sacred Mountains and Eight Desolations, even demons and spirits from the Water and Land realms, all come to pay homage once every few decades. Could there be none among them who are unworthy? Honestly, thieves are only held back by their greed—once that awakens, who cares for personal risk? Yet, all the scoundrels in the realms, hearing of my ten-thousand-year reputation, lose their nerve and dare not set even a toe near the garden gate—let alone sneak inside to steal anything.” Then he loudly addressed the crowd, “Friends, this is no boast of mine. Since I took charge, has there ever been the slightest stir, a dog’s bark or a rooster’s crow? The Holy Mother has praised me highly, saying I have not failed in my duty.”
+
+The crowd flattered him while continuing their nonstop chatter and vigorous gambling. Dongfang Shuo chuckled inwardly: “Look at this—this garden guardian clearly uses the Peach Garden as his gambling den. Not bad at all, a fine place indeed. Except when the Jade Emperor himself, or the two Patriarchs Laojun and Yuanshi, come personally, no one else dares enter here to inspect. What a merciful and lenient Holy Mother! Not sending anyone to guard the garden is practically shielding this bungling god as a bodyguard for gambling.” Thinking this, he could not help but laugh aloud. But mindful of his true purpose, he paid them no further mind. Yet his mischievous nature prevailed, and with a smile he muttered, “I have not heard this guardian god ever cause trouble before. But with his antics, who knows how many thefts might soon occur?”
+
+His words slipped into the guardian deity’s ears, who instantly flared with rage and shouted, “Who is this girl, so reckless and insolent, daring to offend me? Order the ghost soldiers to seize her!” Dongfang Shuo panicked, and before they could move, he broke into a swift run, bounding away until he vanished without a trace. His ears were keen; even half a li away he could still hear voices. Seeing no pursuit, he stopped and listened. The guardian, though lazy by nature, was puffing himself up, pounding his chest and cursing the “wretched harlot.” Many tried to calm him with laughter and words.
+
+Then the guardian, still sulking, growled, “Where did this girl come from? I have been here so long, inspecting these children every seventy or eighty years, yet I cannot recall such a wretched creature. Perhaps she is some friend’s child, playing here with her parents? Since she worries about thefts in the garden, I will be extra vigilant. From now on, I will keep the main gate open for three days and nights without assigning guards. Let’s see who dares to stir trouble. Unless it is this girl’s family—greedy and short-sighted—who, having no invitation to the Peach Banquet, seek to pilfer a few peaches for a taste. This girl, careless with her words, has revealed it all. The Queen Mother’s peaches, though ever-present through the seasons and lasting a hundred years, are not for the unworthy or incapable to covet. When the gods investigate tomorrow, if she is caught stealing peaches, she will be whipped by the mountain guardian and driven down the mountain, forbidden ever to return to the Jade Pool. Then I will make this girl and her whole family know the dignity and power of my divinity.”
+
+The guardian’s anger flared, his curses growing fiercer. Though many tried to soothe him, he was not a high-ranking god and was used to the flattery of his gambling companions. He loved to boast, and though others knew his words were empty, no one dared shatter his paper window of pride. Yet today, before so many, a mere child’s light words had stripped away all his glory. How could he not be furious? The angrier he grew, the more the crowd tried to reason, the more his words cut like a sharp sword.
+
+Dongfang Shuo listened to his torrent of abuse, half amused and half annoyed, and spat, “He can call his little girl and wretched wench whatever he likes. What does it matter to me? I’m here to steal my peaches.”
+
+He passed through flower clusters and willow-lined paths, moving forward. Along the way, he met several young immortal maidens, some with flowers in their hair, others holding tender leaves or carrying flower baskets, preparing to take them back to their chambers to play. They giggled and chattered in groups, like fluttering butterflies among blossoms—innocent and untouched young ladies, full of natural charm and unspoiled grace. Dongfang Shuo, a playful soul, set aside his true mission to plan how to amuse himself with these maidens.
+
+As he hesitated, suddenly a girl in red, holding a small flower hoe, stood under a willow’s shade with a woman in green. They whispered together, their talk full of interest.
+
+Seeing the area was sparse, Dongfang Shuo stepped forward boldly and smiled, saying, “What are you two sisters doing here? Why not go play over there?”
+
+The girl in red glanced at him and asked, “Who are you? We have never seen you in the garden before.”
+
+The woman in green nodded, “Indeed, no one like you here. Where did you come from? Where are you going? What business do you have in the garden?”
+
+Dongfang Shuo smiled and replied, “You two sisters do not recognize me? I am the guardian god’s youngest daughter, seldom entering the garden. So few sisters here know me.”
+
+The girl in red laughed, “Oh, so you are the guardian god’s little daughter. I would not have guessed, since this gentleman must be five or six hundred years old by now. How could he have such a young little sister?”
+
+They both laughed together. Dongfang Shuo thought, “These immortal maidens know nothing of human affairs.” Their words amused him greatly. Just as he was about to reply, the girl in red asked, “Why do you seldom come in, and why have you come today?”
+
+Dongfang Shuo smiled, “Before, there were no servants at home, and I had to care for my younger brothers and sisters, so I had no time to play inside.”
+
+The two women were more surprised, “You have younger brothers and sisters?”
+
+Dongfang Shuo laughed, “Of course! Several. My father’s affairs are not so bad, except he loves gambling day and night and has many children. I already have twenty-seven or twenty-eight older brothers and sisters. Now there are four or five younger than me.”
+
+Their mouths fell open as they laughed nonstop. Dongfang Shuo continued, “I was not supposed to come today. My older brothers and sisters often come to the garden, and since everyone knows them, it is hard to enter and play.”
+
+They exchanged surprised looks, “What does that mean? The familiar ones cannot come, but a stranger like you can roam freely? How is that?”
+
+Seeing no one nearby, Dongfang Shuo lowered his voice and smiled, “I will tell you, but don’t tell anyone else. If it gets out, my father will be in trouble, and I will be beaten to death.”
+
+The two women, sensing a secret, said, “No outsiders here. Tell us quickly. We won’t cause you harm. Speak boldly.”
+
+Dongfang Shuo hesitated, then said, “My father, old and weak, must eat one Peach of Immortality each year to avoid sickness and pain. Since managing this garden, he sends my older brothers and sisters each year to sneak in and steal one or two peaches when no one is watching. Eating them makes their bodies stronger each year, more spirited than in youth. This year, my twenty-eighth brother was to come, but since the Holy Mother left for the Buddha’s realm, the mountain guardian often patrols outside. Father feared trouble, so he sent me to steal instead. First, I am a stranger—no one recognizes me, so if peaches go missing, they won’t trace them to my family. Second, I am young; even if seen, they will say children are greedy and careless, not a serious crime. That is why I came. Father also invited many to the pavilion by the gate to gamble, drawing them away. The rest are sisters about my age, making the task easier.”
+
+The two women exchanged glances, silent. Dongfang Shuo, smiling, turned and slipped into the woods, vanishing in a blink. The two women stood stunned, then whispered, “No wonder the guardian god has been gambling more fiercely. This is theft by the watchman himself!”
+
+The girl in red sneered, “That old fellow is no good. He acts all high and mighty, ignoring us. Last year, I lost a silk handkerchief in a pavilion and tried to retrieve it. At the gate, he scowled and said it was closing time—no one allowed in. I was mad and gave up, not begging him. If he is so strict and just, how can he dare do what others cannot or will not? The Holy Mother herself tastes the peaches yearly, yet he, a mere garden clerk, wields such power? Impossible!”
+
+The woman in green laughed coldly, “Sister, if you had not mentioned it, it would be better. We all have suffered from that old man. Because of his age and authority, we endure him. Those were small matters, tolerable. But this is a serious case. The garden has a set number of new and old peaches. Every thousand years, the Holy Mother inspects. Soon another inspection will come. If many peaches are missing, he is the guardian—who would suspect him? We would bear the blame for him. If he treats us all as thieves, how can we bear such humiliation?”
+
+As they spoke, more maidens arrived, linking arms and shoulders, coming from afar. The two forgot their promise to Dongfang Shuo and, annoyed, gathered them to tell all they had heard. Before they finished, more girls came, as dusk approached and all prepared to leave the garden for the palace. This was the main thoroughfare, so all would hear. The red-clad girl repeated the story again and again. The maidens’ brows furrowed in anger, speechless with fury.
+
+These women had long resented the guardian’s abuse of power and oppression, nursing grievances with no way to retaliate. Now, with this chance, fearing future inspections and unjust blame, they felt anxious and fearful. They resolved to strike first to clear their names. So they held a great assembly on the grass. Among them, the eldest sisters—Su’e and Hanying—gifted with eloquence, were asked to quickly petition the mountain guardian, explaining the situation: first, that no peaches were lost; second, that rewards and punishments be clear so all might avoid blame.
+
+The mountain guardian was a sharp, upright, and unyielding god, quite unlike the gambling, lazy, and foolish garden guardian. Upon hearing the report, he resolved to enter the garden to halt the gambling. The gamblers hastily hid their tools, but many cards fell to the ground. The guardian noticed and signaled to several soldiers who entered with him. The soldiers laughed, “Garden guardian, why have you dropped so many cards? Let us pick them up for you.” As they gathered them, some cards were slipped into their bags. The guardian, embarrassed, blushed and said nothing. The chief guardian smiled, “Your divinity is here and bored, playing with small amusements is no harm. But have you lately checked the garden for thieves stealing peaches? That is your sole duty!”
+
+The garden guardian, emboldened, replied, “How dare I neglect my duty? Since taking this post, I have served day and night without slack. Thanks to the chief guardian’s blessing, in two hundred years, no theft has occurred.”
+
+The chief guardian smiled, “Well done indeed.” Rising, he said, “I have some matters to inspect inside. Please proceed, no need for accompaniment.” His words struck fear into the garden guardian.
+
+What the chief guardian found remains unknown. Whether Dongfang Shuo succeeded in stealing peaches will be revealed in the next chapter.

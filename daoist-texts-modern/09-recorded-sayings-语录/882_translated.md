@@ -1,0 +1,5 @@
+# Record of the Most True Sayings of the Unperturbed, Pure, and Long-Living Perfected One
+
+(By Liu Chuxuan of the Southern Song, One of the Northern Seven Perfected of the Complete Reality Dao)  
+A native of Donglai Prefecture in Jin, styled Tongmiao, styled himself the Child of Long Life. The world hailed him as the Perfected One of Long Life. He authored the *Collection of Immortal Music*, the *Record of the Most True Sayings of the Unperturbed, Pure, and Long-Living Perfected One*, and the *Commentary on the Jade Scripture of the Inner Vision of the Yellow Court*.  
+In the era of the Yuan Sovereign, he was posthumously honored as the Perfected One Who Aids Transformation and Illuminates Virtue, and under Emperor Wuzong, he was further elevated as the True Lord of Long Life Who Aids Transformation and Reveals the Profound Virtue.

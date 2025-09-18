@@ -1,0 +1,16 @@
+# Cao Yongchun’s Quest for Immortals at the Five Elders’ Cavern
+
+Cao Yongchun, a Daoist priest of Jianfu Palace on Mount Qingcheng, was known for his eccentric ways. His fellow Daoists all regarded him as mad. In the year nineteen ninety-eight, he suddenly told his companions at Jianfu Palace, “Last night I dreamed of the Green Snake. She invited me to visit the Five Elders’ Cavern.” Now, Mount Qingcheng was originally the place where Bai Suzhen and the Green Snake cultivated their arts; the Green Snake and Bai Snake had also practiced at the Five Elders’ Cavern on Mount Emei. Mount Emei itself was a Daoist grotto paradise, and legend held that the Five Elders’ Cavern was a path leading to the immortal realm—yet no one had ever ventured there. The Daoist brethren dismissed Cao Yongchun’s words as the ravings of a madman and paid them no mind. But Shì Puming, a monk from Wenshu Monastery in Chengdu who was on good terms with Daoist Cao, heard that Cao intended to journey to the Five Elders’ Cavern on Mount Emei and eagerly asked to accompany him.
+
+Daoist Cao Yongchun and Monk Puming arrived together at the mouth of the Five Elders’ Cavern on Mount Emei. At the entrance, they arranged offerings of fruit, lit three incense sticks, and burned some paper money. They prayed aloud: “Mountain Spirit, Earth God, this humble Daoist has come at your invitation; please grant us safe passage.” After their prayers, Cao switched on a flashlight and began to crawl into the cavern.
+
+The entrance narrowed steadily, barely wide enough for one person to crawl through. After about five minutes, the passage suddenly opened up. Inside, the cavern was cold and damp; bats fluttered out from the shadows, and venomous snakes coiled beneath their feet. Monk Puming said anxiously, “If we go further in, won’t we run out of oxygen?” Cao replied calmly, “No worries. Since they invited me, there’s surely no danger.” So they pressed onward, though the cavern branched in many directions, with deep pools and muddy marshes here and there. After about one hour, Cao said, “Look, there’s light ahead; we must be close.” The two moved toward the glowing spot, only to find the light shifting to another place. They followed the new glow, but it moved again. This happened several times. A faint warmth began to rise, and after a while, they found themselves outside the cavern. They encountered two tourists, and Monk Puming hurriedly asked, “Amitabha, may I ask where we are?” The tourists replied, “Master, this is Xianfeng Temple on Mount Emei!” Only then did the two realize they were no longer inside the cavern.
+
+Cao Yongchun was furious. “That Green Snake actually deceived this old Daoist! It infuriates me!” At that moment, a voice echoed from Xianfeng Rock: “The immortal way’s secret lies in concealment. I had intended to invite you to enjoy the fairyland, but who told you to bring a monk along? Were it not for the respect this monk usually shows the Daoist teachings, my disciples would have bitten you to death inside the Five Elders’ Cavern long ago. And you still say I deceived you?” Daoist Cao was filled with regret.
+
+A verse praises:
+
+Priest Yongchun, mad and wild,  
+Seeks true immortals on Mount Emei’s heights.  
+Immortal secrets must not be revealed,  
+Let later immortals heed this warning well!

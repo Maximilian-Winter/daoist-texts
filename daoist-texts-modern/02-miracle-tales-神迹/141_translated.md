@@ -1,0 +1,9 @@
+# The Response of Liu Jing of Quanzhou to the Numinous Grace of the Dark Heavenly Highest Emperor
+
+Liu Jing, a native of Jinjiang in Quanzhou, was a steadfast devotee of both the Buddha and the Dao. Known for her kindness and generosity, her household honored the Dark Heavenly Highest Emperor with daily offerings of incense, flowers, and reverent care—never once neglecting this sacred duty.
+
+In the year two thousand and eight, while at the Peach Blossom Source Cavern on Wuyi Mountain, she lit incense and, in passing, inquired about her near future. There, a mountain Daoist told her, “Your Eight Characters reveal wealth and official rank in harmony, and your nature is gentle and kind. Yet, born in the month of Yǐwèi, the coming year Jǐchǒu brings Heaven’s clash with Earth’s conflict. Moreover, your Day Master is Gēng Metal; when encountering Chǒu, it signifies entering the tomb. By all reason, in the year two thousand and nine, you should face a great calamity.”
+
+Hearing this, Liu Jing’s heart trembled with unease. In the summer of two thousand and nine, while driving toward Xiamen, she met with a terrible accident—her car plunged beneath the Haicang Bridge, nearly drowning her in the waters below. Yet, by a marvel of grace, a lone turtle appeared beside her, bearing her upon its back to the shore’s safety.
+
+The following year, in two thousand and ten, she returned to Wuyi Mountain to offer incense once more. There, encountering the same Daoist, she recounted her ordeal. The Daoist said, “The turtle is a messenger of the Dark Heavenly Highest Emperor. Does your household not honor him?” Only then did Liu Jing realize that, through her sincere worship, the divine had secretly shielded her, guiding her safely through the great tribulation. From that moment forth, her devotion to the Venerable Patriarch Zhenwu grew ever more profound and unwavering.

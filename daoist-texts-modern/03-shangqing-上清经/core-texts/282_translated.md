@@ -1,0 +1,107 @@
+# The Profound and True Supreme Clarity Dragon Flight Nine-Path Letter of Secrecy
+
+Title of Scripture: The Profound and True Supreme Clarity Dragon Flight Nine-Path Letter of Secrecy.  
+Author Unknown, approximately from the Northern and Southern Dynasties.  
+This work is a compilation drawn from the *White Feather Black Wing Dragon Flight Jade Talisman* (also known as the Dragon Flight Letter Secret) and the *Most High Flying Feather Scripture Ascending Mystery Supreme Record* (also known as the White Feather Black Wing Numinous Flying Jade Talisman), forming one scroll.  
+Source Text: *The Orthodox Daoist Canon*, Zhengyi Section.
+
+---
+
+### The Profound and True Supreme Clarity Dragon Flight Nine-Path Letter of Secrecy
+
+**White Feather Black Wing Dragon Flight Jade Talisman**
+
+In the first year of the Most High Great Dao Sovereign’s reign, on the first day of the second month, the day of Jiazi, a solemn covenant was made in the boundless heavens and transmitted to the True Lord of the Northern Pole. At that moment, the Nine Heavens’ Supreme Emperors, High Immortals, and Great Sages all gathered at the covenant ground. The Five Emperors wore their ceremonial belts, myriad spirits attended the pavilion, the sun and moon poured forth their radiance, the Five Lodges arrayed their stars, the Seven Primal Gates opened, the Yellow Path ceased its course, Heaven and Earth paused their celestial mechanisms, the Three Realms fell silent and pure, crimson clouds shaded the scene, purple mists soared in four directions, harmony reigned and the day was auspicious, the Eight Sceneries unfolded in splendor.
+
+The Sovereign tore open the silk of dawn, and beneath the brilliant morning light, imparted the secret formula mouth to mouth. His voice echoed the Nine Heavens in a distant chant, commanding the revered title of Emperor to be proclaimed with joy. The Celestial Numinous Ones bowed deeply; the Demon Kings were bound in form; the Profound Void was upheld; the seat ascended to Jade Clarity. The Five Elders were commissioned to oversee the trials, the Four Assistants to support the truth, the Immortals flanked on both sides, and the covenant was proclaimed to the spirits. Following the patterns of bowing and raising, facing north, the blessing was uttered:
+
+“Cold flight ascends the stage, the Nine Numinous Ones command, the cycles turn and shift, the sun and moon never cease. At this auspicious morning, the sincere heart sheds form, biting the blade of the Southern Palace, exhaling elixir in the cold court, golden sheep and silver geese, respectfully offered to Supreme Clarity. The silk is torn and heaven divided, the covenant announced in scripture. As the Four Extremes are, so be it; once in myriad kalpas, if any leak my words, calamity and punishment from the Seven Mysteries shall fall. If any betray my covenant, their form shall be tested and destroyed; life and death shall answer for it, forever sealed in the Nine Darknesses.”
+
+When finished, the silk was torn and the scripture passed on. The secret words were orally transmitted; the Celestial Numinous Ones descended; the Five Emperors guarded the spirits; the Nine Mornings bestowed nine hundred golden morning jade youths; the Nine Sovereigns gave seven hundred jade maidens of floral radiance; the Five Sovereigns further gave each of the Five Emperors five hundred jade maidens. The Five Elders commanded the carriage; the Four Assistants bore the banners; purple clouds flew the palanquin; twelve jade wheels rolled; phoenix songs led in front; behind followed the Profound Sovereign; six legions opened the path; nine dragons winged the chariot, to welcome the True Lord. Ascending Jade Clarity’s Northern Morning Upper Palace, they feasted among the Seven Primal Gates, circled the Five Lodges, passed through the Heavenly Gates, took their place as Chief Immortals, and governed in the Northern Pole’s Vast Spirit Palace.
+
+In the first year of the Kaihuang era, the text was entrusted to the Eastern Flower Azure Youth Great Sovereign, to be transmitted through myriad kalpas to later practitioners.
+
+The way of the Dragon Flight Letter issues from the Nine Heavens’ Supreme Emperor, bearing the exalted names of Heaven and Earth, the Nine Mornings, the Five Stars, and the Eternal Void. It is a supreme treasure of secret numinous sounds, thus a covenant text. Unless one has passed through nine kalpas of past lives, reversed the profound manuscript, recorded the characters of Supreme Clarity, and is a true perfected person, one must not glimpse its chapters or probe its hidden sounds. To behold this text is to transcend life and death and become an immortal. To cultivate its way is to have divine light flowing and shining, emperors descending, seven years of concealment and transformation in myriad forms, passing in and out of the netherworld, floating through the nine voids; after fourteen years, ascending in daylight to the morning, soaring to Jade Clarity.
+
+There is lineage but no scripture; only by courtly rites to the numinous truth can one attain longevity, extend life without end, be untouched by a thousand calamities, unharmed by myriad misfortunes, with warfare and disaster destroyed, all obstacles transformed to success. In going out and returning, the Nine Stars cast their shade; the neck bears a round light; the Five Emperors marshal their guards; everywhere they govern and welcome. One who attains this may serve the Holy Sovereign in the Supreme Clarity Palace.
+
+This way was born with the Primordial Beginning. The Nine Heavens’ Primordial Sovereign passed it to the Most High Great Dao Sovereign; the Dao Sovereign passed it to the Later Sage Golden Gate Sovereign, the Great Sovereign, the Supreme Celestial Sovereign of the Purple Tenuity, and the True Lord of the Northern Pole, who entrusted it to the Eastern Flower Azure Youth Great Sovereign. It is transmitted through myriad kalpas to those who attain the way in later generations.
+
+The method of transmission requires the recipient to follow the prescribed ritual: bring ninety feet of crimson-patterned silk and fifty feet each of five-colored patterned silk, and present oneself before a master of the scripture. One fasts for one hundred days, or seventy days, or seven days, then sets up an altar on the Profound Mountain, a place of supreme stillness, writes the text, faces north, and divides the covenant and transmission formula. With five taels of golden sheep, one petitions the Five Stars; with nine taels of silver geese, one petitions the Nine Mornings. These two offerings are presented to Heaven to receive the scripture, serving the master with sincerity.
+
+At the hour of the Rat, dew appears upon the altar. Using a crimson silk kerchief, one invites the sheep to the east; with a white silk kerchief, invites the geese to the west; swearing to the Nine Heavens, dividing the covenant in half, orally transmitting secret names. At the time of transmission, the above blessing is also recited. This is truly a precious and noble Dao, a solemn covenant sworn never to be leaked. Without the covenant, careless transmission causes master and disciple alike to be destroyed, seven ancestors held accountable, and no reprieve through myriad kalpas. This is the prohibition of the upper heavens; all should examine carefully.
+
+At the time of covenant, disciples hold the sheep and geese, face north, bow nine times, then bow once to each of the Five Directions in turn, starting from the west, ending south, returning west, then prostrate. Facing east, the sheep and geese are placed to the master’s left and right; the master sits in the center, facing north, knocks teeth nine times, and proclaims:
+
+“I, True Person of Mount So-and-so, of the Jia cycle, dare at this good time, the triple harmonious auspicious morning, ascend the imperial altar, shed form with sincere heart, purify and fast to request auspiciousness, array the covenant before the upper heavens. May the Most High gaze down and regard So-and-so of the Jia cycle, raised by the Northern Emperor, True Person of Mount So-and-so, may the former body eternally attain the true way, not undergo reincarnation, flow with the Nine Heavens’ blessing, never lose the ancient name, the profound manuscript guiding and granting vision to reveal the profound chapters, chanting the Emperor’s name once, coveting and admiring immortals, earnestly hoping for the spiritual token, so that at some day in the heavens, the transmission of feathered chapters to fly through the void is granted, reporting to myriad emperors up to the Supreme Primordial Sovereign, the High Immortal Great Sage, the Boundless Dao Sovereign. May they gaze down and reflect, carefully overseeing the covenant with sincerity, with the spirit of the Supreme Clarity Upper Palace True Immortal, supplement and attend to the body of Jia, informing the Five Emperors, Five Mountains, myriad spirits, and the great gods of rivers and seas, jointly supervising the covenant text, requesting it be transmitted as decreed.”
+
+---
+
+**Left Half of the Letter**
+
+One must write this text on three feet of white silk, dividing it so that one half is one foot on the left, the two halves joined at the central talisman. The recipient writes their name in purple ink, the text and talisman in vermilion ink. The master transmits the name, inviting jade youths and maidens to guard the recipient’s body. After completion, the central talisman is torn in half and worn on the body: males take the left half, females the right, enclosed in a cinnabar brocade pouch, the text kept close to the heart.
+
+Never violate the life-and-death boundary; three offenses cause the heavenly lodges to collapse, the Five Elders to wail, soul and essence to scatter, the departed spirit to lose its soul and body, and death to come within the year. This is the prohibition of the Nine Heavens. If observed carefully, the heavenly numinous power will reflect mysteriously, divine truth will descend, the body will be born of water and fire, and myriad transformations will follow naturally.
+
+---
+
+**Most High Flying Feather Scripture Ascending Mystery Supreme Record**
+
+The Primordial Nine Heavens’ Parents and the Most True Elder, together feasting on the Dragon of Radiance’s carriage, accompanied by myriad true beings riding through the mulberry forest, flying immortals and giant dragons, steering chariots swirling with lightning and smoke, moving their bodies with ease, chanting numinous verses, roaming the Profound Hill’s grotto, resting by the clear waves’ edge, wandering the purple pavilion, pausing at the boundless end.
+
+At that time, the Heavenly Origin shone brightly, the Five Mornings returned their light, three pure clouds flowed, purple smoke emitted fragrance, flying incense circled the sun, the scent spread to the Great Void, splendid light intermingled and shone, three candles merged their brightness, condensing the supreme true contract, chewing the sun’s root, dining on the profound influx of the void, donning shining golden seals, howling through the Nine Subtleties, spirits flowing through the jade pavilion, wondrous thoughts stirred by the Great Stillness, inner contemplation opened by Nature.
+
+On the third day of the third month in the first year of the High Emperor’s reign, the Primordial Origin suddenly sent down the numinous spirit in the white phoenix’s carriage, the black-winged phoenix’s beak holding a letter of silk, the Flying Feather Scripture ascended the sky, stepping the void with the true formula, jade essence flying immortals guiding the smoke, myriad gods guarding the spirits, dark mists above the Nine Skies, shining brightly in the Jade Void’s court, descending to the Most True Elder, who imparted the precious scripture.
+
+That day, the Most True Elder had just completed fasting in Supreme Clarity. The Great Sovereign, the Three Pure Primal Sovereigns of Purple Tenuity, the Celestial Emperor, the Supreme Celestial Emperor, and honored guests of the Jade Emperor all descended to sit together, burning a hundred harmonious incense sticks. The five-colored divine officials floated, calling out the jade seats, arrayed in the Purple Palace, all the true ones reverently observed the scripture, circling three times. The Three Pure Primal Sovereigns rose, faced west, and emitted a profound bright sound, reciting the Celebration of the True Feather Chapter to praise the divine scripture, with these words:
+
+“Gentle mist in the Great Void Pavilion, the numinous wind scatters wondrous fragrance. The rustling profound scene above, a faint breeze wings the sun. The white phoenix swiftly flies, the beak holds the divine feather chapter. Fluttering and shaking through the Nine Skies, sorrowful cries illuminate the profound beam. The wondrous secret rides the void to arise, pure governance of the Dao without end. All true ones together proclaim celebration, bowing heads to salute the Jade Emperor.”
+
+When finished, the Celestial Emperor rose, faced north, and recited:
+
+“The profound phoenix swiftly spreads cloud wings, the white phoenix joyfully lingers. Flying incense blends with fragrant blossoms, flowing light shines on the clouded avenue. The giant dragon reins the long bridle, flying immortals support each other. Myriad true ones celebrate auspiciousness, joyful phoenixes roam the void. The Primordial Origin originally had no trace, the profound response seeks itself. Flapping wings need no chariot, drifting and floating on smoke. The precious chapter gathers profound firmness, five bodies govern the numinous talisman. Praising and celebrating the guarded blessed court, circling incense three times each.”
+
+When finished, the Celestial Emperor rose, faced east, and said:
+
+“Pure feathers spotted with profound wings, riding the floating fall and turning course. Flowing incense fills the Ten Heavens, fragrant herbs flourish in the Supreme Celestial. The numinous chapter opens the hidden mechanism, the feather scripture shines with profound radiance. The ultimate way originally has no obscurity, holding truth the scene flies by itself.”
+
+When finished, the Most True Elder donned the Dharma robe, crowned with the supreme heaven’s boundless three treasures jade crown, wearing the seamless nine-colored flying void radiant feather chapter, left side adorned with flowing bells, right side girded with the Seven Primal Gates, prostrating facing due south.
+
+The Supreme Celestial Emperor rose, commanding the feather immortals to hold the golden staff, requesting the scripture, facing north, kneeling long, and presenting it to the Most True Elder. All immortals acclaimed its excellence. The Most True Elder stood to receive the scripture, his face radiating golden light; his five bodies immediately gave birth to the natural numinous flying jade talisman.
+
+He then gathered the myriad true ones, all mounting the white phoenix carriage, driving the black-winged phoenix, to feast in the Ever-Yang. To the east, the splendid forest and jade waters, the ruins of Fusang and the mouths of nine springs; to the west, the domain of dark feathers and white plains, the shores of Mengsi; to the south, the Zhu陵 extreme flame essence, the city of Southern Xia; to the north, the Shuo Yin grotto of profound mystery, the village of cold waters; in the center, the ten summits of the disk, yellow qi and yang essence, the Supreme Profound Jade Capital, golden terraces, jade chambers, cinnabar and jade palaces, roaming the ten heavens, the eight domains of profound clarity.
+
+He commands a hundred million true ones; no heaven is not connected, no netherworld not linked, no qi not unified, no immortal not encompassed. He universally governs the myriad gods, from the Celestial Emperor down, none do not model virtue on the Most True Elder, revering the feather scripture as their lineage. Thus, the emperors each float in the profound palace, passing through seven thousand kalpas, transmitting to the Most High Great Dao Sovereign.
+
+---
+
+**Upper Numinous Flying Jade Talisman**  
+The profound immortal feather essence of nature’s chapter. Wearing it for seven years allows flight through the void, ascending the Seven Primal Gates. Cultivating the feather scripture’s flying step way without this talisman cannot ascend the void to the mystery. The recipient swears the covenant on ninety feet of blue brocade. On the day of cultivation, the left palm is inscribed, immediately grasping the azure mist to fly. Written on nine inches of blue silk, worn on the left sash, attended by the Twelve Spirits of the Six Jia and twelve jade maidens.
+
+**Lower Numinous Flying Jade Talisman**  
+The primordial essence feather profound jade chapter. Wearing it for nine years allows flight through the void, ascending the Five Stars. Cultivating the flying step ascension way without this talisman cannot traverse the void. The recipient swears the covenant on sixty feet of white brocade. On the day of cultivation, the right palm is inscribed, immediately able to grasp the pure spirit to fly. Written on nine inches of white silk, worn on the right sash, attended by the Twelve Spirits of the Six Jia and twelve numinous flying jade maidens.
+
+**Left Numinous Flying Jade Talisman**  
+The essence of profound qi’s first birth, the pure feather chapter. Wearing it for nine years allows flight through the void, ascending the Five Stars. Cultivating the flying step ascension way without this talisman cannot tread clouds to ascend the mystery. The recipient swears the covenant on eighty feet of cinnabar brocade. On the day of cultivation, the left sole is inscribed, immediately able to tread the void to fly. Written on nine inches of crimson silk, worn on the left sash, attended by the Twelve Spirits of the Six Jia and twelve numinous flying jade maidens at the front.
+
+**Right Numinous Flying Jade Talisman**  
+The primordial qi essence ascending mystery feather chapter. Wearing it for nine years allows cloud riding flight and stepping jade clarity. Cultivating the flying step ascension way without this talisman cannot tread the Seven Primal Gates and ascend the void. The recipient swears the covenant on fifty feet of dark brocade. On the day of cultivation, the right sole is inscribed, immediately treading the mystery to fly. Written on nine inches of black silk, worn on the right sash, attended by the Twelve Spirits of the Six Jia and twelve numinous flying jade maidens at the rear.
+
+**Great Numinous Flying Jade Talisman**  
+The yang qi yellow essence flying feather chapter. Wearing it for nine years, the face shines with golden light, sitting or standing, flying through the Great Void. Cultivating the flying step ascension way without this talisman cannot gaze upward to the imperial chief, transcending to the Nine Mysteries. The recipient swears the covenant on twelve feet of yellow brocade. On the day of cultivation, the talisman is inscribed on the heart, immediately able to exhale clouds and ride them to travel. Written on nine inches of yellow silk, worn on the left sash, attended by the Twelve Spirits of the Six Jia and twelve numinous flying jade maidens at the body.
+
+All who cultivate and preserve the way of the Seven Stars, entering the chamber, must first wear the five talismans, then write the scripture. Both writing and wearing face east, knocking teeth twelve times, and reciting the incantation:
+
+“Profound Void Purple Clarity, Flying Feather Scripture, shining above the clouds and mists, subduing myriad spirits, controlling and governing the Six Jia, moving my body and form, flying steps to the Heavenly Origin, raising the Dipper’s essence, condensing soul and solidifying spirit, filling and replenishing within, exiting emptiness and entering mystery, living always with qi.”
+
+When finished, wear the talismans, write the five hearts, then proceed with affairs. Thus for nine years, one may master riding the void and commanding clouds, flying through Supreme Clarity.
+
+The left and right numinous flying jade talismans issue from the essence of nature, imparted by the Most True Elder, to ascend the void and step the empty path, raising the chief and treading the firm, winding down the Seven Mysteries, ascending to Jade Clarity. Prepared for the flying feather scripture, those who obtain it are immortals; those who wear it become true perfected persons; those who cultivate it summon the white phoenix carriage and black-winged phoenix to come greet their body, ascending the Jade Palace, roaming and feasting in Ever-Yang.
+
+The Most High Great Dao Sovereign passed it to the Supreme Origin Great Sovereign, the Supreme Celestial Emperor, to implement the Dao and accomplish the secret within the Most High Spirit Capital Palace. According to the ritual, it is transmitted once every three thousand years, never lightly revealed. Revealing it violates the celestial numinous, breaking the covenant and oath, causing the body to serve ghostly officers, calamity to the Nine Ancestors, and confinement in the nether springs.
+
+All the above talismans are written in vermilion ink.
+
+---
+
+**The Profound and True Supreme Clarity Dragon Flight Nine-Path Letter of Secrecy**

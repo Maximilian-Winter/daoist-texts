@@ -1,0 +1,155 @@
+# The Mysterious True Scripture of the Most High Eight Pristine Truths: The Marvelous Secrets of Altar Ascension and Talismanic Charms
+
+**Scripture Name:** The Mysterious True Scripture of the Most High Eight Pristine Truths: The Marvelous Secrets of Altar Ascension and Talismanic Charms.  
+Author Unknown, roughly dated to the Southern period of the Eastern Jin Dynasty. Originally part of the *Eight Pristine Truths Scripture Manual*, later separated into an independent volume. One scroll.  
+Source Text: *Daoist Canon of Orthodox Tradition*, Zhengyi Section.
+
+---
+
+### The Mysterious True Scripture of the Most High Eight Pristine Truths: The Marvelous Secrets of Altar Ascension and Talismanic Charms
+
+The Most High addressed the celestial emperors, the later holy sovereigns, the supreme minister Qing Tong, and the True Person of the Great Ultimate, saying:  
+“All those disciples who receive the Great Mysterious Treasure Scripture of the Supreme True Dao, all know it by the Eastern Flower’s name, inscribed in golden letters as Supreme Clarity. It is precious beyond measure, a treasure of prior good karma. Yet if one does not seek a master to receive the secret instructions, but merely recites and studies it, unaware of its original source, one toils in vain and invites demonic interference—thus committing the crime of stealing the scripture, with no hope of ascending as an immortal.  
+Those with true aspiration must diligently follow the prescribed methods, receive the mandate from a master, and thereby attain the utmost truth. Now, therefore, I distinctly set forth the ritual of covenant and proclamation, solemnly transmitting it to the person—take great care not to divulge lightly. The celestial emperors and all holy perfected beings unanimously acclaim this as good, bowing their heads in obedience to the command.”
+
+Regarding the covenant and proclamation to the spirits, each has its ranks and grades. For those dwelling in mountains and forests amidst the world, the tokens differ; the number of fasting days varies; the manner of concluding the fast and presenting the petition depends on the individual’s circumstances. The progress of master and disciple generally follows the essentials of this secret path.  
+The treasures of Heaven and Earth lie hidden and are not transmitted to all divine beings. They are not suitable for ordinary mortals or novices with little talent to hear, see, speak, or use. Yet for the peaceful and worthy, do not withhold.
+
+Those who obtain the treasure scripture find its contents uneven and manifold. The main reasons are sevenfold:  
+One, the numinous spiritual radiance manifests in sound and form;  
+Two, virtuous persons meet and the mountain grotto welcomes them;  
+Three, the teachings diffuse freely, but public and private matters become confused;  
+Four, coming and going in the marketplace, sometimes people arrive with goods;  
+Five, those unversed in the methods pilfer the solemn rites;  
+Six, the devoted heart reveres the master, opening to transmission;  
+Seven, family and ancestors pass it down through generations.  
+These seven conditions may separate or combine, ascend or descend, each with its covenant method, with the master’s transmission at the center. The proper ritual is as follows:
+
+Ascend the Imperial Altar of Jade Clarity, proclaiming the covenant and scripture transmission. The altar measures two zhang and four chi in length and breadth, with four corner gates opened. Each of the five directions is adorned with one bolt of patterned silk: ninety chi of purple brocade, ninety chi of blue gauze, nine taels of gold brocade, and forty chi of one’s birth-silken cloth. Five seats are arranged. One golden fish and one jade dragon are placed, along with one jade talisman measuring one chi two cun long and two cun four fen wide. Five plates of the Five Phases are set, with three talismanic inscriptions. Five fragrant incense sticks, one scarlet gauze kerchief five chi long, one white silk strip one chi wide, one golden ring, five bright mirrors, one white silk strip one zhang five chi long, and documents of the covenant text bound with blue silk and gold buttons, crossed with twenty chi of purple brocade and patterned cloth.  
+The earthly gate’s white altar matches the same two zhang four chi dimensions, with four corner gates opened. Five taels of gold brocade adorn the top, with nine chi of white brocade as a band and three chi two cun of purple brocade.  
+On the morrow of the transmission, one lodges at the altar, facing north, knocking teeth nine times, then raising one’s gaze to pray:
+
+“O Most High Primordial Sovereign, Spirit Venerable of the Nine Heavens, Supreme True and Profoundly Remote, Lofty and Mysterious Jade Pavilion, through the cycles of three and five, the seven lodges shift the dawn, the Void Sovereign reins in the chariot, the Jade Emperor ordains immortals, the Azure Palace selects talismans, the command spirit mountain—this day is supremely auspicious, myriad truths unfold, the upper studies of A and B, the fated causes of past lives, encountering the divine scripture, the imperial treasured chapters, reverently at the Mysterious Peak, covenanting with the Nine Heavens, reporting to the Five Emperors, the twelve river sources, petitioning and receiving the record, presenting to the High Dawn, universally announcing to myriad spirits, floating ranks at the imperial altar, organizing guards and extinguishing trials, according to the Most True, awaiting the morrow to conform to the transmission.”
+
+On the morrow, when ascending the altar, before reaching within thirty steps, knock teeth thirty-two times, envisioning purple clouds covering the crown of a mountain, the divine soldiers of the Five Emperors numbering in the millions coming forth to welcome the destined body. Then softly chant:
+
+“The divine true beings emerge to roam, myriad emperors are struck with awe, the jade spirit and mysterious guards, the Five Mountains take charge to receive, heavenly spirits and mighty warriors, ten thousand auxiliaries of the numinous, the command summons the Ten Directions, driving and marshaling heavenly troops, leading all beneath Heaven to the imperial court, commanding my ascent to immortality, penetrating the Dao’s essence, discerning misfortune, traversing the hidden and reaching the obscure, all that is presented accords with Jade Clarity.”
+
+Having completed this, one ascends the altar. The master enters from the northwest onto the altar, facing northwest bows nine times, saluting the Nine Heavenly Kings, knocking teeth nine times. [Softly opening, he says:]
+
+“Now transmitting to disciple Wang Jia the Nine Heavens Treasure Scripture, ascending to the jade secret. Clear lodges fasting and petition, qi and fate harmonize with truth, petitioning to descend to supervise, true immortal jade secret. Registrar attendant, spirit guard commander, supervising the covenant of Heaven, what is opened and entrusted, may it be heard above early.”  
+Finished, turning southeast, bowing again, then opening:
+
+“O Most High Primordial Heaven, now ascending with eight assemblies, the day auspicious and time clear, reverently at the Mysterious Peak, covenanting and transmitting the supreme scripture, petitioning to report below, Five Emperors and spirit immortals, supervising ministers of the covenant oath, may the divine immortals be obtained early, to ride the flying chariot, ascending to the imperial court.”
+
+The disciple enters from the southeast beneath the altar, bows northwest nine times, faces southeast and bows again, then turns north facing south to support the master. Facing north, knocks teeth thirty-six times, first reciting the Golden True Supreme Void Chapter once to subdue myriad demons. This chapter is from the Golden True Jade Light Scroll. Those who have not received Supreme Clarity Jade Light may not recite this chapter.
+
+“The heavenly essence rides the void, myriad essences alarm the divine court. Entrusting the immortal ballad and chant, following transformations into the nameless. The clamorous qi is so turbulent, the defiled Dao is born on the road. Amidst clouds, the vermilion palace is abandoned, the Northern Emperor leaps with divine soldiers. Drums and waves arise from the Dao of Wisdom, mysterious motions come to welcome. The upper scene feasts with flying reins, swift chariots inspect the cloud camp. Urgently checking the Northern Emperor’s talisman, capturing and summoning demon names. The sky net spreads wide, releasing power and casting flowing bells. Now the true captures the empty cavern, jade light shines through the eight darknesses. Golden mystery guards the upper palace, divine tiger slays heavenly essence. Cutting off and extinguishing myriad demonic qi, billions all leveled. Upholding the Nine Heavens’ trust, whistling commands none resist. Summoning truth to penetrate the three caves, wisdom recited clears the eye. The eight paths gaze upon the mysterious rosy clouds, seven turns weave the heavenly scripture. Mixing the emperor’s one truth, rescuing the seven ancestral processes. Cutting off the five roots of suffering, reversing the soul to receive honor anew. Golden light shines upon the utmost stillness, divine candles naturally arise. Splendid fragrance scatters through the jade cosmos, smoke and qi penetrate the jade capital. The emperor dispatches the wandering chariot, the Three Primes descend in green chariots, swift steeds soar through the nine mysteries, paying homage at the Jade Emperor’s court.”
+
+Upon finishing the Supreme Void Chapter, facing east knock teeth thirty-six times, chanting:
+
+“Unsurpassed Three Heavens Mysterious Primordial Supreme Qi, Most High Elder Lord, summon forth from my body the void and natural flying immortal officials, divine immortal messengers, left and right flying dragons, Most True jade maidens, and the Five Emperors’ direct talismans, each thirty-six in number. Open and close the true officials of the local land, the correct gods. I now properly burn incense, wishing the summons to swiftly reach the Infinite Jade Emperor, the Most True Most High Ten Thousand Saints’ Threshold.”
+
+Finished, facing north knock teeth twenty-four times, summoning the Supreme Clarity officials. Those who have not received the Supreme Clarity Three Primes Jade Inspection may not summon these officials.
+
+Carefully summon from my body the void and natural left and right jade void attendants, twenty-four each; summon from chaos and nature the Five Emperors Most True, twenty-four each; summon from chaos and nature left and right leading immortal jade youths, twenty-four each; summon from the nine mysteries void flying dragon officials, twenty-four each; summon from the upper prime officials, twenty-four each; summon from the middle prime officials, twenty-four each; summon from the lower prime officials, twenty-four each; summon from Supreme Clarity jade void flying immortal messengers, twenty-four each; summon divine immortal messengers, twenty-four each; summon jade immortal messengers, twenty-four each; summon great immortal messengers, twenty-four each; summon upper prime messengers, twenty-four each; summon middle prime messengers, twenty-four each; summon lower prime messengers, twenty-four each; summon jade clarity golden dawn jade youths, twenty-four each; summon jade clarity great flower jade maidens, twenty-four each.  
+Those summoned are solemn and dignified, wearing celestial crowns and robes, proper in demeanor, standing before the minister. Jade void attendants wear flying mysterious jade crowns, dragon-patterned nine-color tiger robes, holding command demon banners, standing to the left. The Five Emperors Most True wear prime dawn jade crowns, five-colored flying immortal feather robes, nine-colored banners, standing to the right. Flying dragon officials wear flat heaven jade crowns, nine-colored phoenix robes, tiger-belted with tiger script, holding summoning talismans, standing above. The Three Primes officials wear nine-prime vermilion sun jade crowns, three-colored feather robes, belts with flowing golden fire bells, holding laws of capture and killing, standing below. Flying immortal messengers wear flying heaven jade crowns, nine-colored patterned robes, holding golden talismans, establishing the banner in front. Divine immortal messengers wear vermilion sun jade crowns, flying immortal feather robes, holding jade tablets, carrying banners behind.  
+The Supreme Void Cavern natural inspectors of heaven’s assistants, nine hundred million multitudes of flying mysterious riders; inspectors of heaven’s assistants true flying soaring riders, nine hundred million multitudes; inspectors of heaven’s assistants divine flying riders, nine hundred million multitudes; inspectors of heaven’s assistants imperial soaring void riders, nine hundred million multitudes; inspectors of heaven’s assistants spirit soaring void riders, nine hundred million multitudes; natural void five emperors flying immortal chariot void riders, nine hundred million chariots; natural void flying immortal soaring void riders, nine hundred million chariots; natural flying jade feather canopies chariots, nine hundred million chariots; natural flying green chariots with reins, nine hundred million chariots; natural inspectors of heaven’s earth-controlling dragon soaring riders, nine hundred million chariots; natural summoners of truth producing jade immortal officials, nine hundred million multitudes; natural divine elixir producing immortal officials, nine hundred million multitudes; natural golden true flowing light shining lightning riders, nine hundred million multitudes; natural yin essence stirring clouds and rain riders, nine hundred million multitudes; yang brightness illuminating commanding qi chasing lightning riders, nine hundred million multitudes; natural cloud gate holding banner commanding light riders, nine hundred million multitudes; divine immortal troops and mounts, all gathered below, stationed before me in front, behind, left, and right, arrayed in formation.  
+Natural five-colored flowing rosy clouds and purple smoke, nine hundred million layers; natural five emperors flying wheel flowing smoke, nine hundred million layers; five-colored flying jade feather canopies, nine hundred million layers; five mountains’ five-colored flying chariots, nine hundred million layers, encircle the body, scattering essence and spreading qi, filling the Ten Directions, encompassing the heavens and covering the earth, guarding and protecting my body.  
+With the solemn affairs complete, the immortal feather banner attendants and flying jade youths hold aloft the empty jade altar, standing before me, carrying the words from my mouth, separately opening and closing the upper, lower, central, four sides, and Ten Directions’ heavenly officials and earthly gods, the Five Mountains, Four Rivers, Nine Rivers, Eight Extremes, famous mountains and great marshes, Five Emperors’ true officials, Four Supervisors, Nine Departments, summoning the Mysterious Primordial Qi, the Jiazi officials and lords, infinite and boundless, without high or low, deep or shallow, obscure or manifest, countless true officials, pouring qi upon the Sovereign of Heaven’s Nine Palaces, Eight Trigrams, and Six Jia True Persons, the void and nothingness directly serving the Five Mountains’ flying immortal divine dragon feather riders.  
+Passing through the qi, ascending to inform the Primordial Sovereign, the Supreme Void Jade Emperor of the Nine Heavens, the Primordial Three Heavens Jade Youth True King, the Most High Ten Thousand Immortals Fusang Emperor, the Most High Great Dao Jade Dawn Lord, the Three Primes Southern Pole Banishing Lord, the Golden Gate Later Holy Sovereign, Eastern Flower Qing Tong, the Four Extremes True Persons, the Thirty-Nine Emperors, the Twenty-Four Truths, the Supreme Clarity Mysterious Primordial Upper Three Heavens Infinite Great Dao, the Most High Elder Lord, the Most High Patriarch, the Heavenly Elder Sovereign, the Nine Elder Immortal Capital Lords, the Nine Qi Patriarchs, the Infinite Supreme One Sovereign, and hundreds of thousands of layers of Dao qi, one thousand two hundred official lords, Supreme Clarity Jade Majesty, heavenly immortals, divine immortals, flying immortals, Five Emperor Immortal Lords, Great Flower True Person.  
+I, by karmic affinity and past blessings, through the kalpa of the Nine Heavens, revolving unextinguished, fortunate and blessed, have obtained the path of life. Formerly, I was favored by the ancient holy True Person, who saw and elevated me, opened my ignorance, clearly bestowed the supreme method, the Nine Heavens Great Secret, Three Caves Treasure Scripture, jade talismanic spirit texts, alchemical writings in purple characters, flying void step chapters, ascending the imperial altar, proclaiming the mandate to the Nine Heavens.  
+From ancient accumulation, the heavenly cycle shifts, the imperial Dao moves in sequence, the method must be transmitted to later disciples. There are those with mysterious names destined to respond to immortality, the spirit texts are secret and weighty, not daring to conceal nor lightly transmit. According to the years and limits, calamity years arise. For the utmost students, there is never the chance, with endless sighs of despair, diligent yet unaccomplished, until the Primordial Sovereign opens transformation, difficult to meet such persons. Thus, by the principle of mysterious methods, when conditions align, it is granted.  
+Now there is a certain Master Wang Jia of a certain mountain, with past blessings and remaining grace, encountering the opening of peace and prosperity, by fortunate cause born in a holy era, receiving the Most High’s illumination, the scripture named Imperial Simplification, able to participate in the great method, cultivating and reciting the jade scripture.  
+From ancient accumulation, this one abandons sentiment and forgets form, entrusting the will to secluded heights, quiet spirit in rocky caves, contemplating spirit and qi, but what is seen is shallow and narrow, unprepared for encountering matters. Now again he comes to me, fasting seven days, presenting petition and oath, seeking accomplishment, establishing the imperial altar, proclaiming the mandate to the Nine Heavens, reverently receiving the Supreme Clarity treasure secret jade scripture, all as prescribed.  
+With faith and oath complete, all according to the ritual and method, I immediately ascend with this one to the Spirit Mountain, close the Five Mountains and Five Emperors, report to the Nine Heavens, to transmit to this body. This one vows to keep silent and diligently cultivate, not to be negligent, to proclaim the true text, to not violate the ritual or transgress the precepts, lest the seven ancestors examine and the body be surrendered to ghost officials.  
+Carefully examine conduct and observe the method, the body shall attain flying immortality.  
+Respectfully hereby report, must be guarded and transmitted.
+
+After dispatching the officials, commanding the covenant and transmission of secret names and scripture talismans, the master stands facing north, holding the scripture in the left hand, knocking teeth thirty-six times, heart fixed on the Most High Jade Emperor, commanding the light of sun and moon to heroically illuminate master and disciple’s bodies. Chanting:
+
+“Great Microcosm, how vast and remote, the True Person forms the void life, the empty ferry naturally connects, gathering into the Great Mysterious Scripture. The true and worthy uphold the law and faith, riding the cycles through the Yellow Court, preserving secret years and kalpas, exposing negligence to the hellish infant, examining the seven generations of ancestors, the wind blade dissolves your form.”  
+The master holds the scripture in the left hand, the disciple holds the token in the right, facing heaven, softly saying: “Issue the Four Extremes Bright Method.”
+
+“Reporting to the High Mysterious, myriad emperors of the void and subtle, descending to the world with vows, steadfast and unchanging, dare to report the bright method, to examine all faults. The jade scripture treasure manual, all according to ritual and majesty, after crossing the body, myriad qi all return, long preserving Heaven and Earth, the three lights shine together. Dare anyone leak, long be gone from the four faults.”  
+Finished, the disciple faithfully receives the scripture, bows north nine times, holding the method token, the master receives the token, the disciple points left hand northwest, right hand receiving scripture, turning southeast ascending, leaning west to stand, then successively turning south to retrieve the heavenly gate, burying the disappearance talisman.  
+If also receiving the purple knot belt, before turning southeast ascending, one may also separate purple and white silk, with a separate ritual.
+
+The master positions at northeast ascending, knocking teeth thirty-six times, raising eyes to pray:
+
+“Nine Heavens’ cavern shines, mysterious talisman glows bright, upper studies A and B, refined qi essence, upper chosen imperial ministers, and all spirits and myriad souls, the Jade Emperor supervises the post, attending immortal divine court, the three northern palaces, inspecting and controlling demon soldiers, the four supervisors and five emperors, slaying deceitful life, clearly capturing the nine prefectures, inscribing the armor names, soaring body escaping transformation, relying on earth to hide form, lifespan equal to the three lights, nine primes all united.”
+
+Finished, stepping singly twenty-four steps, arriving behind the disciple at the earthly gate, again chanting:
+
+“Feet tread the Five Ridges, ascending mysterious principles, soaring body through nine voids, entering the hidden and subtle, light steps on clouds, reaching transformation with swift brilliance, golden true radiant light, heavenly gates brightly open, body adorned with imperial seal, flying azure feather robes, five spirits supervise and reflect, departing without delay, countless ages and kalpas, eternally departing worldly defilements.”
+
+Finished, then bury the soaring heaven disappearance talisman beneath the disciple’s left foot.  
+The disciple then steps singly twenty-four steps, arriving at the southwest corner human gate, leaning, again praying:
+
+“Disassemble form at the imperial altar, transform traces into nothingness, extinguish the scene at the spirit mountain, swift body through the supreme void, soaring heaven relying on earth, mixing eras and Ten Directions, closing none unopened, cutting off none returning, Most High Jade Emperor, Nine Heavens Great King, spirit reflection already supervising, forever ending worldly worship, proclaiming covenant at the imperial altar, further passing the spirit peak, shedding traces in the three roads, ascending to the Jade Capital.”
+
+Finished, then bury the relying earth form-disassembling talisman beneath the disciple’s right foot.  
+Next, stepping singly thirty-nine steps, arriving at the northwest corner heavenly gate, leaning, the master again chants:
+
+“Step forth at the earthly gate, cloud-walking the heavenly gate, three turns and nine refinements, bright Dao uniquely divided, proclaiming covenant at the spirit mountain, riding the cycles turning the wheel, jade chariot wandering, reins controlling clouds, five dawns winging clouds, setting the scene of seven primes, disassembling form relying on earth, upper passes the three gates, paying homage to the golden gate, abiding with the emperor eternally.”
+
+Finished, bury the soaring heaven talisman at the left trace, the relying earth talisman at the right trace.  
+Finished, the master and disciple at the Nine Heavens Gate, blue silk wrapped with gold buttons, proclaim to the spirits and depart, then exit the northwest Nine Heavens Gate.  
+The disciple exits the gate, then grasps the fish and dragon talisman on the mountain rock, facing due north, knocking teeth nine times, self-proclaiming covenant at the Nine Heavens, chanting:
+
+“Great Dawn Mysterious Exclusion, Nine Mysteries Hidden and Secret, Vermilion Scene Supervising, myriad spirits refining essence, three cycles interchanging, moon revolving around sun, at this time opening and unfolding, primordial celebration auspicious, ascending the altar’s high peak, hidden bright rocky chamber, swearing above the Nine Heavens, middle opening the constant One, below reporting to the spirit mountain, myriad gods forever ended, lightly transmitting the world’s treasure, long departing the mysterious seven, violating master and breaking covenant, form shattered and shadow extinguished, three roads and five sufferings, myriad kalpas without escape, according to the covenant text, recording the name on the jade talisman, petitioning early ascent and crossing over, soaring body to the imperial court.”
+
+Finished, then cast the object upon the mountain cliff.
+
+The two right talismans, written in blue on white silk, are buried at the heavenly gate, beneath the two traces of the receiver.  
+At the earthly gate, bury the soaring heaven talisman beneath the disciple’s left foot.  
+At the human gate, bury the relying earth talisman beneath the disciple’s right trace.  
+The disciple secures the life-patterned silk cloth, placing it above the birth-silken cloth, the Five Emperors’ patterns in corresponding colors securing the Five Directions, the covenant token placed centrally.  
+The five covenant mirrors secure the Five Emperors, restraining heavenly demons. Without this securing cloth, the spirits of the Five Mountains will not accept the disciple’s covenant.  
+The Western City Lord transcribed the Most True ritual essentials at Yangluo, passing the Lady of Southern Mountain, only the soaring heaven and relying earth two talismans’ secret instructions are orally transmitted. Those receiving this method have a separate covenant secret in the Most True ritual.
+
+When the master ascends the altar, he must display the Five Emperors’ proclamation talisman, placing the disciple’s token to secure the Five Directions, and covenant the Nine Heavens, swearing to the Five Spirits. The scarlet gauze kerchief five chi long is placed before to request the scripture text. The master faces north reading the transmission name, the disciple faces east prostrate to receive.  
+When the covenant affairs are complete, the disciple bows north nine times, folding hands nine times, swallowing the nine qi, finished, then departs.  
+The master then buries the golden fish, jade dragon, and jade talisman at the remote cliff, burying while facing north knocking teeth thirty-six times, softly chanting:
+
+“Heavenly Origin Eight Bright Ones, Nine Mysteries—Gate of Truth, Three Lights Responding in Time, this day unfolding, the Supreme Emperor accepts and listens, proclaiming mandate to the spirit mountain, Three Officials and Nine Prefectures, twelve river sources, recording a certain name in the register, forever to become immortal, seated must ride the dragon chariot, flying carriage with purple smoke, able to govern ascent, paying homage to the Jade Dawn.”
+
+Finished, bury the fish and dragon talisman in the mysterious valley.
+
+---
+
+**Nine Heavens Proclamation to the Eastern Peak Azure Spirit Ten Thousand Immortal Palace Guarding Master Wang Jia’s Body for Covenant Transmission True Record**  
+The Azure Palace looks down and dispatches nine White Emperor immortal officials to serve and receive, as per Nine Heavens’ mandate.
+
+On the right red alchemical script board, placed facing south, to secure the Eastern Peak Spirit Official, attended by nine immortal officials.
+
+**Nine Heavens Proclamation to the Southern Peak Red Spirit Ten Thousand Immortal Officials Guarding Master Wang Jia’s Body for Covenant Transmission True Record**  
+The Azure Palace looks down and dispatches nine Red Emperor immortal officials to serve and receive, as per Nine Heavens’ mandate.
+
+On the right white script board, placed facing west, to secure the Western Peak Spirit Official, attended by nine immortal officials.
+
+**Nine Heavens Proclamation to the Western Peak White Spirit Ten Thousand Immortal Officials Guarding Master Wang Jia’s Body for Covenant Transmission True Record**  
+The Azure Palace looks down and dispatches nine White Emperor immortal officials to serve and receive, as per Nine Heavens’ mandate.
+
+On the right white script board, placed facing west, to secure the Western Peak Spirit Official, attended by nine immortal officials.
+
+**Nine Heavens Proclamation to the Northern Peak Black Spirit Ten Thousand Immortal Officials Guarding Master Wang Jia’s Body for Covenant Transmission True Record**  
+The Azure Palace looks down and dispatches nine Black Emperor immortal officials to serve and receive, as per Nine Heavens’ mandate.
+
+On the right black script board, placed facing north, to secure the Northern Peak Spirit Official, attended by nine immortal officials.
+
+**Nine Heavens Proclamation to the Central Peak Yellow Spirit Ten Thousand Immortal Officials Guarding Master Wang Jia’s Body for Covenant Transmission True Record**  
+The Azure Palace looks down and dispatches nine Yellow Emperor immortal officials to serve and receive, as per Nine Heavens’ mandate.
+
+On the right yellow script board, placed centrally, to secure the Central Peak Spirit Official, attended by nine immortal officials.
+
+The five talismans on the right, made by the Supreme Jade Emperor commanding the mandate to proclaim to the spirits, when ascending the Jade Clarity Imperial Altar must be inscribed and placed according to ritual and position, the master at the center commanding the covenant of the Four Extremes. Finished, bury the talismans at the Five Mountains.
+
+For the great covenant transmission, cast the golden dragon, jade fish, and jade talisman with the text:  
+“On the first day of the month in the year of [blank], Master Wang Jia of [blank] Mountain, age [blank], born in [blank] month, fate belonging to [blank] constellation and [blank] emperor lord, reverently at the Mysterious Peak high mountain rock, proclaiming oath to the Nine Heavens, having received ninety-one volumes of scripture, Four Extremes Most True Bright Method, Nine Heavens Genealogy Bright Method secret instructions, practicing the true Dao, petitioning to inscribe the purple slip, named Azure Palace. Violating the covenant and breaking the oath, dare not hope for immortality.”
+
+On the right vermilion script jade talisman, one chi two cun long, two cun four fen wide, after reading, bury in the shade of the remote cliff.
+
+---
+
+*The Mysterious True Scripture of the Most High Eight Pristine Truths: The Marvelous Secrets of Altar Ascension and Talismanic Charms*

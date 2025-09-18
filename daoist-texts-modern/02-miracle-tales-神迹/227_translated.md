@@ -1,0 +1,13 @@
+# Zhang He’s Return of the Heavenly Official’s Silver: A Tale of Spirit and Justice
+
+In Chengdu, the wife of Zhang He had passed away three years prior. Zhang He himself had taken up arms in the western lands of Sichuan—during the era of the Three Kingdoms, this western domain encompassed the eastern reaches of present-day Sichuan Province and all of Chongqing City, centered upon the fertile Chengdu Plain, bordered to the north by Hanzhong, stretching eastward to the Three Gorges, southward to Yibin, and westward to the Longmen Mountains. There, at Xingping (now in Shaanxi’s Guanzhong region), he pitched his camp and prepared for battle against the rebel Huang Chao.
+
+At that time, the neighboring Feng family—a father and son—before departing for the front, had entrusted thirty thousand coins to Zhang He’s wife for safekeeping. Later, the Fengs fell in battle, their lives lost upon the bloodied fields. The silver they had left behind was gathered by Zhang He’s wife and used. Not long after, she too passed from this world. Yet, in the shadowy realms beyond, a dispute arose: the souls of the Feng father and son pursued Zhang He’s wife’s spirit, demanding repayment of the silver.
+
+Six years had passed since Zhang He’s wife had spent the silver. Only recently did the Heavenly Official of the Celestial Bureau render judgment. It was decreed that Zhang He’s wife bore no ill intent in failing to return the money; knowing the Fengs had died in battle, she had no means to repay and had only temporarily appropriated the funds. The verdict ordered her to compensate the Feng father and son with three thousand strings of coins, and thus the matter was to be settled.
+
+Zhang He’s wife conveyed to him that after the twenty-fifth day of the twelfth lunar month, all the various offices of the netherworld would undergo their year-end handovers and then observe the New Year’s holiday. Therefore, this debt must be resolved before the twenty-fifth day. She instructed that at the Treasury Bell of the Celestial Bureau, located at the Jade Pavilion Temple north of the city (today’s northern Chengdu), paper money must be burned—each sheet representing one string of coins.
+
+All other officials and offices connected to this case must be duly notified, just as in the mortal realm. On the twenty-third day of the twelfth lunar month, in the third year of the Guanghua era, Zhang He arrived at the Northern Emperor’s Temple and carried out every step exactly as his wife had instructed. The debts were thus cleared and reconciled.
+
+That very night, Zhang He’s wife appeared to him in a dream, offering her thanks before drifting away like a gentle breeze, freed at last.

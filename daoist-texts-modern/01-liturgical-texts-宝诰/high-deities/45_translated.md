@@ -1,0 +1,3 @@
+# The Treasure of the Star Lord Left Assistant
+
+With a heart of utmost devotion, I bow and submit my vow. Within the Purple Tenuity Enclosure, inside the imperial throne palace, the Dipper’s handle turns and revolves, governing the trials of conflict, punishment, and calamity; its starry radiance converges and shines forth, bestowing omens of health, peace, blessing, and longevity. Its hanging image is trustworthy, its streaming light unceasing. Great compassion and great vow, great sage and great mercy—this is the Great Sage of the Central Heaven, the Eighth and Illuminated Cave of the Northern Dipper, the Star Lord of the Great Way, Left Assistant.

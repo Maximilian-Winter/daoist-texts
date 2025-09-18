@@ -1,0 +1,13 @@
+# Preface
+
+In my youth, orphaned and deprived of learning, I wandered to Chengdu, where by fortune I encountered Master Zhiyuan within the halls of the Pure Cloud Grotto. He instructed me in the ancestral teachings and imparted the great Dao. For twenty-eight years I followed him, only then beginning to grasp the profound mysteries, gradually penetrating the study of nature and destiny. Yet Master Zhi journeyed westward, roaming the Western Lands for decades without once crossing my path. Ever mindful of his kindness in guiding me, not a day passed without remembrance.
+
+In the second year of the Xianfeng reign, by Master Zhi’s command, I set out to tour the wondrous mountains and rivers. From the heart of Shu I commenced my travels, passing through more than ten provinces north and south, strengthening sinew and bone, expanding courage and insight. Later, I bore the dust of the capital, intending to linger a few years, making a sojourn beyond the usual bounds. Unexpectedly, sages and worthies from all directions, drawn by hollow fame, sought the Way from afar—there were those who came even from a thousand li. How could one so slow and shallow in learning presume to be their teacher? Yet moved by the earnestness of these gentlemen, how could I dismiss their hopes?
+
+Thus, I returned to the many teachings and exhortations of Master Zhi, along with the insights gained from years of wandering and reflection, composing several volumes to aid those entering the gate—much like the Confucians’ so-called studies of enlightenment. My words are shallow and crude, barely worthy of a single smile from the refined.
+
+When these writings were completed, I pondered the broken lineage of the Dao, which now is more grievous than ever. Later scholars, possessing a few texts yet forgetting their ancestors, this is the sorrow of the Daoist tradition and the burden upon my own shoulders. Therefore, tracing from the ancient patriarchs down to the recent immortals who attained the Dao, along with the circumstances of their cultivation, I composed the book *Records of the Eight Immortals’ Attainment of the Dao*. To facilitate beginners, I deliberately adopted the style of popular tales, recording in common speech. Since the lineage of the Dao has declined and many streams of the Way no longer understand the written meaning, this work, being popular in style and broad in scope, does not seek profundity or subtlety.
+
+Yet, hastily composed, with proofreading incomplete and a journey overseas intervening, some investigations may lack precision, and errors are inevitable. I humbly await correction from future gentlemen.
+
+In the seventh year of the Tongzhi reign, by the Daoist Wugou at the White Cloud Grotto west of the capital.

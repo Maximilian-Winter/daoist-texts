@@ -1,0 +1,13 @@
+# The Story of a Child Living in a Neighborhood Built Upon a Graveyard
+
+I would also like to share an experience from my childhood. When I was in the fourth grade, my family moved from another place to a neighborhood newly built by a factory. The neighborhood was freshly constructed, all single-story houses each with a small courtyard, specially made for workers newly arrived from afar. The neighborhood was not large—only five rows of houses, each row with five households. Our family lived in the first row, the second house from the east. The small courtyard had two side rooms flanking the main gate; the adults made one side room my bedroom, and the other the kitchen.
+
+I remember when we first moved in, it was the season between spring and summer. At dusk, while I was doing my homework in my room, I heard my mother calling me from the kitchen. I answered once, but then there was no further sound. I ran over to ask my mother, “You called me just now.” She replied, “I didn’t call you.” This happened repeatedly for several days. Then my mother said to me, “If you hear someone calling you again, do not answer.”
+
+A few days later, one night a torrential downpour began, accompanied by roaring thunder and lightning that tore across the heavens. I trembled in fear inside my room, unable to sleep. Suddenly, I distinctly heard a drifting, ethereal female voice calling my childhood name. It floated from the garden of the house to the east, drifting toward our courtyard. The voice called three times in all: the first call was within the eastern neighbor’s garden; the second call reached our courtyard; the third call seemed to arrive right at my door. Terrified, I immediately switched on the light. That entire night, I kept the light burning.
+
+The next day, I told my father and mother about this. They said it was a hallucination—adults often dismiss such things.
+
+A few days later, I climbed onto the roof of the house for some reason. Looking eastward, I saw countless grave mounds densely packed. Outside the wall in front of our house was also a row of graves. It turned out this neighborhood was built upon a graveyard.
+
+That night, after the adults had fallen asleep, I bowed my head toward the four directions within my room, saying, “We are newcomers; please do not harm me. Let us all be good neighbors from now on.” Thinking back now, no one ever taught me to do this, yet I did it naturally. Indeed, after that, nothing untoward happened.

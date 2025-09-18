@@ -1,0 +1,43 @@
+# The Supreme Scripture of the Purple Script Immortal Taboos of the Numinous Taiwei: The Upper Classic
+
+**Scripture Name:** The Supreme Scripture of the Purple Script Immortal Taboos of the Numinous Taiwei. Abbreviated as *The True Record of Immortal Taboos*. The author is unknown, likely composed during the Eastern Jin and Southern Dynasties. Originally one chapter within the *Numinous Scripture of the Purple Script*. The source text is from the *Orthodox Daoist Canon*, Cavern of Truth section, precepts category. Collated once.
+
+---
+
+To the Venerable Youthly Lord Fangzhu, from the Upper Clarity, was transmitted by hand-copy at the Vermilion Heavenly Elixir Tomb by Gong Zhongyang and Youyang, to be bestowed upon the Perfected Ones of the Southern Palace.
+
+The Youthly Lord said: “The difficulty of learning the dao of immortality is no single matter. The difficulty is not like that of the mortal world; the immortal difficulty is indeed something that cannot be fully recorded in writing. Though a person may bear the immortal visage and be destined to ascend, there are yet ten ways in which one’s immortal visage may be ruined. Even if one relies on this immortal visage, if one violates these, one is defeated and cannot become immortal. Now I secretly reveal these signs to you; you must honor them.”
+
+---
+
+**First:** Do not indulge in licentiousness. If licentious, the ethereal fluids leak outward, the essence light withers and exhausts, the spirit scorches and the soul scatters, bones grow thin and marrow foul, the soul laments in the numinous mansion, the upper palace hears, the Three Palaces contend, the embryonic spirit grieves and errs—this is the first ruin of the immortal visage.
+
+**Second:** Do not become a shadowy thief or cruel villain. If cruel and villainous, the Yellow Court is thrown into chaos, the Three Corpses delight in killing, the soul and spirit spy and scheme, the soul-ghosts invade the chamber, eyes scatter like soldiers, the mouth breeds injurious qi—this is the second ruin of the immortal visage.
+
+**Third:** Do not become drunk on wine. If drunk, the form and substance decay, spirit and truth become confused, the soul forgets its original chamber, the soul wanders in evil abodes, the infant spirit flies wildly, the throat and brain burn out—this is the third ruin of the immortal visage.
+
+**Fourth:** Do not be filthy, arrogant, or unflourishing. If filthy, arrogant, or unflourishing, the clear numinous loses its truth, essence and soul do not dwell, the Three Palaces breed worms, the infant spirit floats and wanders, blood becomes turbid and marrow foul, spirit light loses its dwelling, the soul flees through evil gates, seeking the book of death—this is the fourth ruin of the immortal visage.
+
+**Fifth:** Do not eat the flesh of the beast that is your parents’ life sign. For then the primordial form is lost at the start, the root and foundation perish, the embryonic spirit wails and howls, the Crimson Lord cries and mourns, the Three Souls suffer bitter poison, the soul seeks the grave mound. This flesh entering the mouth causes fate to fall into the long night—this is the fifth ruin of the immortal visage.
+
+**Sixth:** Do not eat the flesh of the beast that is your own life sign. For then form and spirit may be violated, the mud pellet diminishes and falls, the Three Palaces close their gates, the infant spirit becomes confused, the soul and spirit fly and scatter, the soul seeks the coffin—this is the sixth ruin of the immortal visage.
+
+**Seventh:** Do not eat the flesh of the six domestic animals. For then qi and form become turbid and foul, the essence and spirit stagnate and muddy, the brain yellows and teeth wither, the spleen nurtures deathly qi, the soul does not receive truth, the spirit produces evil vigor, the body sinks into the long abyss, bones wish to be buried in earth—this is the seventh ruin of the immortal visage.
+
+**Eighth:** Do not eat the five pungent vegetables. For then the five organs emit foul odors, the three blossoms collapse into chaos, the spirit does not reach upright, the essence and embryo descend and fall, soul and spirit become separated, the infant spirit is vexed and weary, the flying numinous loses its guard, the eyes’ light flows and is seized—this is the eighth ruin of the immortal visage.
+
+**Ninth:** Do not kill living beings from insects upward. For then you wage war against myriad things, bind your corpse with blood resentment, the form is violent and the soul fierce, soul and qi clash in battle, the embryonic spirit wanders lost, the true child flees and scatters, the mud pellet is treacherous and mad, the infant spirit abandons and rebels, the corpse’s form is boiled in cauldrons and water, roasted by fire—this is the ninth ruin of the immortal visage.
+
+**Tenth:** Do not face north when relieving yourself, nor gaze upward at the Three Luminaries; do not face north when cutting hair or removing clothes; do not face north when spitting or cursing, lest you offend and break the sovereign. “Break” means the time beneath the year’s branch; “sovereign” means the place of royal qi. Do not anger the sun, moon, or stars; do not wield harsh punishments on the eight seasonal festivals; do not rage on the first day of the month; do not eat turtle, dragon, scale, or shell on the day of the Six Jia; do not eat pheasant on the day of Bingwu; do not eat black beasts on the day of Bingzi; do not practice yin and yang or lie with women on the day of Gengshen; do not become intoxicated on the day of Yimao; do not kill living beings facing north on the fourth day of the first month; do not eat fish on the ninth day of the second month; do not eat the flesh of the five organs or the hearts of a hundred herbs on the third day of the third month; do not cut grass or fell trees on the eighth day of the fourth month; do not see blood on the fifth day of the fifth month; do not break ground on the sixth day of the sixth month; do not entertain evil thoughts on the seventh day of the seventh month; do not buy shoes or foot coverings on the fourth day of the eighth month; do not rise from bed on the ninth day of the ninth month; do not punish others on the fifth day of the tenth month; do not neglect bathing on the eleventh day of the eleventh month; do not fail to fast, burn incense, and recite the immortals on the last three days of the twelfth month.
+
+Such taboos are the great prohibitions of Heaven and Man, reported by the Three Officials as grave offenses. Sometimes they cause the Three Souls to fall ill, the Seven Spirits to scatter, the embryonic spirit to be hated, and the Three Palaces to suffer evil times. Thus, evil dreams trouble the cinnabar heart, demons ride the vermilion gates, essence and fluids offend, spirit and truth become confused, transformations are many and forbidden, and the art of taboos is unknown. If you can observe and cultivate these, you will be a true immortal; if you do not observe Heaven’s prohibitions, you will be one who is harmed and defeated.
+
+---
+
+Those who study the dao, on the day of the Autumnal Equinox, must all maintain true fasting and abstinence, not entertain evil thoughts, and always wish to fly as immortals. The ancient divine ones said: “If you desire to ascend to Heaven, be cautious on the Autumnal Equinox; all sins, great or small, are reported above. To seek immortality through sin is exceedingly difficult; therefore, learning the dao chills the heart.” This is the essential truth. If one is a long-term fasting Daoist, on the day of the Autumnal Equinox, all must thank the Seven Ancestors and parents, and confess all sins from top to bottom, vowing self-reform. Unless one truly possesses a transcendent and unparalleled nature, be cautious on this day to confess sins—be careful.
+
+The Youthly Lord said: “You know the immortal visage is not urgent; you should know the ruinous visage is secret and crucial. The world’s turbid people have only the shape of bones, how could they understand the path of mutual aid in physiognomy? For those who study the dao, the first desire is to widely practice hidden virtue, to show compassion toward all things, to rescue people in hardship, to deliver those in danger, to value the dao over wealth, to bestow kindness and spread virtue, to be generous with treasures, to cast them into poor lands, to awaken and vow true qi, to kneel with a humble heart and plead. Therefore, the ancient supreme saying is: ‘Cultivate the field of blessings to obtain ascent to immortality.’”
+
+---
+
+*The Supreme Scripture of the Purple Script Immortal Taboos of the Numinous Taiwei: The Upper Classic*

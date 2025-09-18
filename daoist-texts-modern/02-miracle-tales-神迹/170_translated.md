@@ -1,0 +1,9 @@
+# The Verified Iron Pillar of Hongzhou
+
+The iron pillar standing in the octagonal well of Wanshou Palace in Hongzhou was forged by the venerable Lord Xu in times long past. During the Jin dynasty, in Yuzhang (present-day Nanchang, Jiangxi), a fearsome flood dragon plagued the people, and torrents of water ravaged the land. Lord Xu, having studied under his master, the Perfected Wu Meng, mastered the orthodox art of the Three-Five Flying Steps to sever evil and command myriad spirits. From the well in Zhangzhou, he pursued the dragon relentlessly until it emerged from the octagonal well.
+
+Lord Xu spoke to Perfected Wu Meng, saying, “Beneath this well lies the lair of the flood dragon. If no means are taken to restrain it, then once every three hundred years it will rise again to threaten living beings. Who then will be able to subdue it?”
+
+Thus, by commanding legions of ghosts and spirits, millions of pounds of iron were brought and cast into the octagonal well, with several feet of the pillar rising above the well’s mouth, standing resolute like a colossal column. Iron chains were fastened in eight directions to bind the earth’s veins, and from that day forth, no more malevolent spirits troubled Yuzhang’s borders, nor did floods or droughts afflict the land. The venerable Lord Xu warned, “Let no future generations dare to damage this iron pillar, lest floods overflow and demons run rampant.” The local people, in awe, never dared to touch it.
+
+When Yan Zuan served as the Military Governor of Jiangxi, he heeded the words of scoundrels and sent men to excavate the iron pillar, intending to shatter it. But as soon as work began, dark clouds gathered, thunder roared, and the Gan River swelled, raging like a furious sea. Only then did he believe in the manifest power of the spirits. Hastily, he burned incense, knelt in worship, and bowed his head in repentance.

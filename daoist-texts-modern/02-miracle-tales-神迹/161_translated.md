@@ -1,0 +1,13 @@
+# A Kunming Merchant’s Devout Fasting Brings Fruitful Offspring
+
+In the city of Kunming, a merchant named Wu Tai and his wife, having long busied themselves with trade, only in their forties did they turn their thoughts toward bearing children, seeking to extend their family line.
+
+It is well known that a woman in her forties is counted among those of perilous motherhood—on one hand, conception grows difficult; on the other, childbirth becomes fraught with grave danger.
+
+In the summer of the year two thousand and eleven, they came to the True Celebration Temple (Zhenqing Guan) to seek a divination, inquiring, “Will the birth proceed smoothly?” The oracle drawn read: “After a long drought, the sweet rain comes.” The Daoist priest interpreted, “The ‘long drought’ signifies that Madam Wu’s body has become like withered wood, aged and barren; yet the ‘sweet rain’ implies that external forces must lend their aid. Following the guidance of this oracle, coupled with the power of prayer and ritual expiation, hope remains for the birth of a child.”
+
+Mr. Wu was overjoyed, his eyes bright with wonder, and he invited the True Celebration Temple’s master to offer prayers on their behalf. A sacred altar for seeking offspring was established, petitioning the Azure Lady of Mount Tai, Bixia Yuanjun, to bestow children and continue the ancestral incense.
+
+At noon that day, the temple’s head priest, Daoist Master Xia Chengde, ascended the altar. With brush and talisman, he inscribed sacred symbols and intoned incantations, personally invoking blessings. From his robes he drew forth a single chopstick, wrapping it carefully with five-colored threads, then called upon divine power to consecrate it. Swathed in red cloth, the talisman was entrusted to Mr. Wu with these words: “Place this chopstick beneath your pillow and keep it there until conception is achieved; only then may it be removed.” Mr. Wu bowed deeply in gratitude, his heart full of reverence.
+
+That autumn, Mr. Wu returned to the True Celebration Temple to fulfill his vow, declaring, “Thanks to the protection of the Patriarch, my humble wife is now with child—a son. I humbly ask the master to grant him a name.” As the Scripture of the Three Officials (Sanguan Jing) proclaims: “Pray for blessings and blessings arrive; expel calamities and calamities vanish.” Such vast power of the sacred rites is beyond imagining—how could this be mere empty words!

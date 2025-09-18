@@ -1,0 +1,23 @@
+# Secret Essentials of the Shangqing Scripture
+
+**Title of the Scripture:** Secret Essentials of the Shangqing Scripture. Originally, no author was named. Within, the phrase “I have heard” appears, which suggests it was composed by Emperor Ming of the Tang. It is a compilation drawn from the Three Caverns and their scriptures and secrets. The original number of scrolls is unknown; presently, only over six hundred characters remain. Source text: *The Orthodox Daoist Canon*, Zhengyi Division.
+
+---
+
+## Secret Essentials of the Shangqing Scripture
+
+According to the scripture’s teaching, one must tap the teeth and ponder the spirit, silently contemplate and recite it, and thus attain flight and ascent.
+
+The Great Dao is a single vehicle, divided into Three Caverns; therefore, the teaching unfolds gradually and suddenly. Among people, there are the wise and the foolish; methods are adapted to circumstances, but the key lies in harmonizing with the Dao. Yet it warns to guard against error and cease evil, to sever the six emotions. Those who hold the talisman advance in rank and ascend as immortals, far surpassing the Three Realms. Hence, the *Chapter on the Nature of the Dao* says: “Precepts and conduct gather all beings, recording and guiding them back to the True One.” From a shallow inquiry, there is no lack of superiority or inferiority; from the mundane to the sacred, each has its gradations. The orthodox immortal numinous is the initial precept; the Jade Clarity’s ascent to the Profound is the final talisman. Through penetrating the mysterious and harmonizing with the Dao, one accords with true words and images, to found its path, instruct its people, practice its teaching, and observe its rites.
+
+I have heard: In the vast expanse of the cosmos, the True Ruler abides; at the dawn of the dark abyss, the sage manifests for benefit. Its teaching is generous yet does not possess; its Dao is used daily yet ever new. Thus it shines like cloud-scripted immortal texts, secret within jade chapters and precious slips. Without grasping the chart and receiving the talisman from the master, one cannot practice its teaching; without dwelling in truth and selecting the worthy, one cannot unlock its writings. The bright truth has five categories; the Most High left ten precepts. Our nation’s banner, the accumulated blessings of White Clouds, inherits the wondrous intent of the Primordial Origin, uniting the virtue of the Two Instruments, shining with the Five Sages. All rely on the supreme Dao to nurture myriad kinds, fostering virtue to oversee living beings.
+
+The *Shangqing Scripture* says: The Three Caverns are: first, the Cavern of Truth; second, the Cavern of Mystery; third, the Cavern of Spirit. Each has twelve gates, divided into thirty-six honored scripture sections, corresponding above to the Three Pure Ones and the thirty-six heavens, below to the nine ramparts and thirty-six palaces and mansions. Thus, a person’s head has nine palaces, the heart nine apertures, the navel nine spirits, the form nine gates—thirty-six places in all.
+
+The *Scripture of Spirit-Birth in the Nine Heavens* says: Humans are born within the womb, nurtured by the Three Primes, shaped by the nine energies, formed over nine months with spirits arrayed. When qi is full, sound arises; the body still possesses spirit. The Nine Heavens proclaim celebration; the Great One holds the tally; the emperor-lords assign fate, record registers, govern destiny and calculation; the Five Emperors oversee birth; the Holy Mother guards the chamber; heavenly gods and earthly deities, the Three Realms all assemble—none are slight.
+
+The *Secret Instructions on Ascending the True* say: The principle discussed is the Dao nature of the pure contention within all living bodies. The Dao nature neither exists nor does not exist; the true nature is ever-present. Thus, to penetrate it is the Dao. The Dao exists but has no form; it has form yet holds feeling; its transformations are unfathomable. It permeates all beings; within humans it manifests as spirit and clarity—thus it is the heart. Teaching people to cultivate the heart is to cultivate the Dao; teaching people to cultivate the Dao is to cultivate the heart. The Dao cannot be seen; it arises from life to illuminate it. Life is impermanent; use the Dao to guard it. When life ends, the Dao ceases; harmonizing with the Dao is longevity.
+
+---
+
+Secret Essentials of the Shangqing Scripture

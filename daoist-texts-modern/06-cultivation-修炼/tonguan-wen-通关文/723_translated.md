@@ -1,0 +1,21 @@
+# The Gate of Self and Other
+
+The *Yijing* says: “When the mountain stands firm behind, one cannot grasp the body. Walking through the courtyard, one does not see the person. No fault.” It also says: “Gathering together in the wilds, success.” The *Diamond Sutra* declares: “No self-image, no other-image, no sentient being image, no lifespan image.” The sages say: “Loyalty and forgiveness—departing not far from the dao. What you do not wish for yourself, do not impose on others.”
+
+Master Shangyang said: “Quickly topple the mountain of self and other, urgently open the empty clash of dragon and tiger.” All these speak to the necessity, in cultivating the dao, of abandoning the view of self and other.
+
+Yet to abandon other, one must first abandon self. For where self exists, private thoughts arise. When private thoughts arise, every word and deed, every action and stillness, must serve the self. To serve the self is to disregard others. To disregard others is to harm them for one’s own benefit, to injure Heaven and violate principle, leaving no deed undone.
+
+Consider at the first breath of life, regardless of wise or foolish, noble or humble, all share the same nature and life, the same form and frame—what difference is there between them? If there is no difference, then I am like others, and others are like me; self and other are one. This is the great impartial heart of Heaven and Earth, the dao of sages who see all people as kin, the method of the perfected who forget both self and other.
+
+If the learner can guard this heart, this dao, this method, and walk it faithfully, then they are the embryo of sages, the seed of immortals and Buddhas, the great dao to be hoped for.
+
+But foolish worldly learners do not know the principle of great impartiality and the unity of self and things. They cling to this body, thinking it is the self. Once self is recognized, then other exists. With self and other, division arises. With division, others are slighted and self is exalted. Inside is self, outside is other. Day and night they scheme to fatten themselves, plotting every which way to take from others. In every deed and matter, unwilling to yield; in every commodity and profit, eager to seek advantage. Not only in dealings with things and people, but everywhere striving to win, everything must be strong. Even with closest friends, colleagues, and companions, they must carve out a you-and-me. They resent others’ wealth and goods, wishing to possess them alone; worldly successes, to achieve them alone. Where there is gain, they pry and reach; where no gain, they shrink and hide.
+
+Little do they know that three inches of breath cease, all things vanish; even this body does not belong to me. When that time comes, where is I, where is person? Self and other both vanish. Why then waste heart and mind in the world, forcibly dividing self and other, forging enmity alone? Is this not folly?
+
+I urge those with true hearts who seek the dao: swiftly open the gate of self and other, surely like at birth when no self nor other appears; surely like after death when no self nor other remains. See all things as one body, see all under Heaven as one family. When seeing others joyful, feel joy as if none were there; when seeing others sorrowful, feel sorrow as if none were there; when seeing others gain, feel it as if it were my own; when seeing others lose, feel it as if it were my own loss.
+
+Those with wealth may aid the needy; those without wealth may find means to help. Everywhere benefit others, in all matters accumulate virtue. When met with hostility, entrust it to unknowing; when suffering insult, place it in unawareness. When able to spare others, spare them; where retreat is proper, step back. Such are the actions and bearing of the learner who yearns for the dao with true heart.
+
+Otherwise, with views of self and other, divisions of this and that, piled-up selfish desires, and blocked mind gates, one vainly imagines understanding the dao—how difficult it is!

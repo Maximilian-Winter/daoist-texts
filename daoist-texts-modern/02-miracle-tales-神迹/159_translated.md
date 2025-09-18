@@ -1,0 +1,11 @@
+# The Numinous Efficacy of the Ritual of Saluting the Northern Dipper at the Sanqing Palace of Jinhua
+
+The Sanqing Palace of Jinhua, nestled on Jingxiao Street in Wucheng District, stands as a venerable temple with a history spanning a thousand years. On the fifteenth day of the second month in the gengyin year, during the assembly honoring the Venerable Lord Lao, a grand fasting and offering ritual was held to celebrate the Lord’s birthday, beseeching blessings for the nation’s peace, the people’s well-being, and harmonious seasons with abundant harvests.
+
+Presiding over the main altar was the high merit master Wang Lehe of the Chisong lineage. The sacred assembly lasted three days. On the night of the fourteenth day of the second month, the solemn ritual of saluting the Dipper was performed. Kneeling, the assembly chanted the *Most High Mysterious and Numinous Scripture of the Northern Dipper’s Original Life-Extending Mandate*, paying homage to the star lords’ august titles and imploring their interpretation and relief from the twenty-four calamities.
+
+At that moment, the Sanqing Palace’s ritual platform was majestic and awe-inspiring, its lamps and candles blazing brilliantly. The sound of sutras echoed into the clouds, while bells and drums rang in splendid array. When the ritual of saluting the Dipper reached its completion, outside the temple the stars and moon shone with radiant brilliance, and a clear breeze stirred gently.
+
+Then, a female devotee, gifted with spiritual perception, grew exceedingly excited and told Master Wang: “Master Wang, look! There are so many immortals in the heavens above.” Master Wang, however, saw only faintly through the clouded sky a magnificent celestial court with legions of troops numbering in the hundreds of thousands—some wielding axes and halberds, others bearing splendid banners. Auspicious clouds swirled about, and purple qi filled the vast expanse.
+
+The star lords descended upon the altar, bestowing blessings and dispelling calamities, confirming the merit of the vows made. When asked, others said they saw nothing. From that time forth, this female lay devotee wholeheartedly embraced the dao, becoming a devoted supporter of the Daoist sanctuary. Even now, she continues her cultivation in the Jinhua region.

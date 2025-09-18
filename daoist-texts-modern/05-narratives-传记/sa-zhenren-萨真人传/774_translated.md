@@ -1,0 +1,61 @@
+# Chapter Eleven: Master Sa Journeys to the Kingdom of Fengdu — The Master Tours the Underworld
+
+Now it is said that the Kingdom of Fengdu is a realm of ghosts, situated at the very edge of the earth. Master Sa was a living man—how could he possibly go there? The reason was that he had encountered the Immortal Elder Ge, his celestial teacher, who gave him daily incantations to consume jujubes. Having thus warded off his bodily ailments, his form became light and agile; he trod high mountains as if on level ground, and floated over deep waters as if on solid land. Therefore, he was able to reach Fengdu.
+
+But why did the Master wish to go to Fengdu? Before he had studied the dao, he had been a crafty official who had caused the deaths of many, and a mediocre physician who had brought about death rather than healing. He had never saved a single soul, and his heart was heavy with remorse and unrest. Thus, he resolved to journey to Fengdu to rescue those many departed souls.
+
+When the Master arrived at that place, he saw the chilling wind blowing fiercely, and a dense black mist swirling everywhere. Within a small city enclosure, a ghostly envoy with a green face shouted out: “What living man dares to enter this pass?” The Master asked, “What pass is this?” The ghost envoy replied, “Can you not read? Look up and see!”
+
+The Master raised his head and saw three large characters inscribed above: “Ghost Gate Pass.” The Master said, “I am a wandering daoist, come to visit the Kingdom of Fengdu. Will the ghost envoy permit me to pass?” The ghost envoy said, “Since you are a wandering daoist, I will not collect toll. You may pass, you may pass.” So the Master entered through the Ghost Gate Pass.
+
+The ghost envoy then saw Wang Shan, whose appearance was strange and fierce, holding a steel whip. He asked, “What spirit is this? Do not let him come to disturb the realm of the dead.” The Master said, “This is a general under my command.” The ghost envoy said, “No spies allowed.” The Master said, “I dare not.” Thus, the ghost envoy also allowed Wang Shan to pass.
+
+Having passed through the Ghost Gate Pass, after traveling but a few li, they came upon a towering pavilion:
+
+Lofty and towering, reaching the Milky Way,  
+A railing set with a single band of white jade.  
+Beast-shaped censers send fragrant clouds upon imperial robes,  
+Crimson gauze lamps illuminate the palace fans.  
+To the left, fierce bull heads brandish,  
+To the right, rugged mule and horse faces loom.  
+Guiding the departed, ghosts carry golden tablets,  
+Summoning souls and spirits, white banners hang low.  
+This is called the General Assembly Gate of the Underworld,  
+The Shura Hall where Lord Yan resides.
+
+Outside, the Master looked left and right. At that moment, the Ten Generations of Lords Yan were gathered atop the hall, deliberating matters. Who were these Ten Generations of Lords Yan? They were King Qin Guang, King Chu Jiang, King Song Di, King Wu Guan, King Yan Luo, King Tai Shan, the Equalizing Lord, King Du Shi, King Bian Cheng, and King Zhuan Lun.
+
+The Bull-Head and Horse-Face spirits saw the Master and reported to Lord Yan: “Before the Shura Hall stands a daoist glancing left and right, yet he is a living man, and he brings with him a spirit general. We do not know whence they come.” King Qin Guang said, “This must be Master Sa of the Western River in Shu.” King Song Di asked, “How do you know this, Your Majesty?” King Qin Guang replied, “Recently, the City God of Huguang Province reported this man’s virtue. He carries the talismanic register of Master Zhang, bears the title of Master, and his dharma power is great and manifest. When he burned the Guangfu Temple, the true god Wang Shan followed him for twelve years, seeking to repay an old grudge. Seeing that he bore no fault, he asked Master Sa to accept him as a general. Whoever comes here must be he, and that spirit general is Wang Shan.” So they ordered the judge Cui Yu to question him.
+
+When Judge Cui Yu saw the Master, they bowed to each other and then asked, “Your Excellency, please state your full name and title.” The Master said, “My surname is Sa, my given name Shoujian; I am from the Western River of Shu. I have come to see Lord Yan.” Cui Huan asked, “And this spirit general, who is he?” The Master said, “He is my subordinate general Wang Shan.” The judge said, “Very well, please wait a moment.” Then he reported back to Lord Yan, “The visitor is indeed Master Sa.” The Ten Generations of Lords Yan then commanded the judge to invite him in.
+
+When the Master arrived beneath the hall, the Ten Generations of Lords Yan all descended the steps to greet him. After formal salutations, they took their seats, host and guest apart. King Qin Guang asked, “Master, what brings you here? What do you wish to instruct us?” The Master said, “My father and mother have died in the underworld. I, a humble daoist, have come seeking an audience.” Lord Yan Luo said, “Your honored father and mother lived virtuous lives without fault; they have already been reborn in the heavenly realm.” The Master continued, “Fifty years ago, before I began cultivation, I was a physician and an official. Unwittingly, I administered harmful medicines and wielded pen and sword to cause death. Now I humbly beseech Your Majesty to grant salvation, so that these wronged spirits may not return to resent me.” Lord Yan said, “Do these spirits know whether they have been reborn? You may visit the City of Wronged Spirits yourself.” The Master asked, “Might I have an envoy to guide me?” King Qin Guang said, “I will have the judge accompany you.” Thus, the Master took leave of Lord Yan and descended from the Shura Treasure Hall. But that is a tale for another time.
+
+Now Judge Cui Yu led the Master on a tour of the underworld, with Wang Shan at his side. On the left wall was a lofty terrace, some twenty or more zhang high, with two roads—one on the right, one on the left. The right road was the upper path; the left road the lower. Beneath the terrace were countless souls, some ascending, some descending. Those going up wore worried, quiet looks; those coming down had tears streaming from their eyes.
+
+The Master asked the judge, “Sir Cui, what is this terrace called?” The judge said, “Master, you may not know: when a person dies, on the first day they gather at the local Earth God’s temple in the mortuary. On the second day, they are taken to the Temple of the Eastern Peak to meet the Benevolent and Sacred Great Emperor of Heaven, who registers their name. Only on the third day do they arrive here, in the Kingdom of Fengdu. Upon arrival, their hearts have not yet died. Lord Yan issues an order allowing them to ascend this high terrace to gaze upon their homeland, each crying once to finally settle their hearts. Therefore, this terrace is called the ‘Terrace of Longing for Home.’”
+
+On the right wall was another terrace, also about twenty zhang high, but with only one road on the left side, and no one walking upon it. The Master asked, “What is this terrace?” The judge said, “In life, there are only two paths: good and evil. Those who are good, after meeting Lord Yan, are sent with banners, flags, and music by the Office of Rewarded Goodness to ascend to Heaven by this terrace. This is called the ‘Terrace of Ascending to Heaven.’” The Master asked, “Why is there only one path?” The judge said, “One may ascend but not descend, hence only one road.” The Master said, “Why do so few people walk it?” The judge said, “How many in life truly ascend to Heaven?”
+
+After walking a while, they saw two high mountains ahead. On one mountain, smoke and fire blazed fiercely; on the other, a forest of swords and spears stood menacingly. The Master asked, “What are the names of these two mountains?” The judge said, “The fiery, blazing one is called ‘Flaming Mountain’; the one of swords and spears is called ‘Sword and Spear Mountain.’ There is a saying about Flaming Mountain: those who in life were cold-hearted, cold-bellied, and spoke cold words that chilled others—after meeting Lord Yan, they are sent to Flaming Mountain, where they are burned until sinews and bones crumble, and the cold furnace turns them to ash overnight. Sword and Spear Mountain also has a saying: those who in life were two-faced, who stabbed with hidden arrows and knives, who spoke honeyed words with daggers in their hearts—after meeting Lord Yan, they are sent to Sword and Spear Mountain, where they are hacked and slashed until they become a lump of minced flesh.” Truly:
+
+In life, you may wield your sharp tongue at will,  
+But in death, you cannot escape the sword’s calamity.
+
+After walking further, they came to a river of blood flowing across their path. There stood a golden bridge, a silver bridge, and a lone wooden plank bridge. Beneath the plank bridge, some had fallen into the waters, where many poisonous insects bit and tormented them. The Master asked, “What river is this? And what of these bridges?” The judge said, “This is the Nai River Bridge. There are saints and sages who, upon death, are escorted by banners and precious canopies to cross the golden bridge. Loyal ministers, filial sons, righteous husbands and chaste wives, and upright men are similarly escorted to cross the silver bridge. But those who in life corrupted the human wheel, defied Heaven’s principle, and harbored wicked hearts must cross the lone plank bridge. Many fall into the blood river below, where golden dragons, silver scorpions, copper snakes, and iron eels come to bite and torment them. What you saw drowning just now were such evil souls.” The Master said, “Good and evil will surely meet their due reward, only differing in whether it comes sooner or later.”
+
+After walking a while longer, they reached a lonely ridge. All around was silent; the chilling wind lashed their faces, cold rain drizzled down, and the air was filled with sorrow. The Master asked, “Sir Cui, what is the name of this ridge?” The judge said, “This is called the ‘Ridge of Sorrow and Despair.’ Anyone who crosses this ridge in the underworld sheds tears twice over, their hearts broken and overwhelmed with grief, hence the name.”
+
+The ridge stretched some three to five li in length, with souls coming and going. The Master saw groups of three or five, staggering east and west; one mouth muttered “three coins,” another “two lies.” The Master asked, “Who are these?” The judge said, “They are all drunkards.” Another group of three or five, ragged and worn, faces yellowed, mouths yellowed, each clutching two large fists. The Master asked, “Who are these?” The judge said, “They are all paupers.”
+
+Another group of five to seven, brows unraised, eyes unseeing, heads turned east, feet west, hands forward, bodies leaning back—neither dead nor alive. The Master asked, “Who are these?” The judge said, “They are all plague ghosts.” Another group of seven to nine lay on the ground, backs up, hands propping, feet kicking, eyes rolling, mouths dry. The Master asked, “Who are these?” The judge said, “They are all struggling spirits.”
+
+Another group of eleven or twelve, some wearing hats without nets, some with shirts but no skirts, some with shoes but no socks, some with upper garments but no lower ones, one hand holding a cane, the other a coconut ladle. The Master asked, “Who are these?” The judge said, “They are all begging ghosts.”
+
+Another group of six or seven carried a roof beam on their shoulders, one hand holding a hemp rope. The Master asked, “Who are these?” The judge said, “They are all hanged ghosts.”
+
+There was yet another group of fourteen or fifteen, among whom some scattered coins with yellow edges upon the ground, while others looked left and right at their coins, collecting and inspecting them, quarrelling noisily. The Master asked, “Who are these?” The judge said, “Those scattering coins are spendthrift ghosts; those watching the coins are miserly ghosts.”
+
+Indeed, the Ridge of Sorrow and Despair was long, with many ghosts walking it, and many kinds among them. The Master asked about each kind, and the judge answered each question. Before they knew it, they had crossed the ridge.
+
+But where this path led next is yet to be told. Listen closely to what follows.

@@ -1,0 +1,17 @@
+# The Efficacy of the Northern Dipper Scripture Offered by Zhang Qingsheng of Jinhua
+
+Zhang Qingsheng, a native of Dongyang in Jinhua City, once journeyed to Mount Chisong. There, he obtained a copy of the *True Scripture of the Northern Dipper’s Original Life-Extending Fate* (北斗本命延生真经). Originally, his intention was to recite it diligently. Yet, fearing that his fasting and purity were insufficient, and burdened by the busyness of worldly affairs, he found no time to chant its sacred words. Thus, he wrapped the scripture carefully in red cloth and enshrined it upon the family altar at home.
+
+Around the year two thousand and seven, Zhang Qingsheng was struck by a grievous gout. The pain was so fierce that tears streamed down his face. He sought treatment at the hospital, but the physicians could only offer relief, never a cure. The agony made life unbearable.
+
+One night, in a vivid dream, ten immortals descended from the heavens—majestic and handsome men of commanding presence. They spoke to Zhang Qingsheng: “We are the Ten Precept Immortal Officials under the Heavenly Master’s command. By the Heavenly Master’s decree, we guard the secret formulas of the Northern Dipper Scripture, honoring your merit in offering the *True Scripture of the Northern Dipper’s Original Life-Extending Fate*. The Heavenly Master sends us to save you. The pure water you have placed before the altar has been imbued by the Northern Dipper with genuine primordial qi. Drink it daily; it holds wondrous efficacy. Do not use it to water flowers anymore.” Having spoken, they vanished in an instant.
+
+Upon waking, Zhang Qingsheng recalled the dream with perfect clarity. Following their instructions, he took the water faithfully every day. Since then, the gout has never returned.
+
+The Iron-Crowned Daoist says: The Daoist scriptures are the Three Treasures of the Daoist Masters. The treasure of the scriptures is like phoenix seals and dragon inscriptions—numinous writings from the Nine Heavens, guarded by divine beings. The upper realms cherish them and do not lightly transmit them to the unworthy. Should one encounter such a treasure, it is a marvel beyond imagining; one must reverently honor it to receive boundless blessings.
+
+The *Scripture of Purity and Stillness* declares: “Whoever possesses this scripture gains the protection of the Ten Heavenly Good Spirits around their person.” The *Jade Pivot Scripture* states: “Whoever holds this scripture enjoys auspicious smoke filling the courtyard and celebratory clouds shading the pavilion.” The *Northern Dipper Scripture* promises: “A household with the Northern Dipper Scripture has the true numinous spirit of original fate descending.” The *Three Officials Scripture* proclaims: “Those who have this scripture find their dwelling bright and radiant.” The *Scripture for Deliverance* reveals: “Attending the scripture are the Five Emperors, Jade Boys and Jade Maidens—twenty-four in all—who arrange and guard the divine writings, protecting those who keep the scripture.” 
+
+“Offer them reverence and honor, and your gates will flourish; generations will prosper and blaze with glory. Those bound to goodness will be untouched by myriad calamities, for divine beings guard the portal.”
+
+If any virtuous believer encounters such a treasured scripture, it is the supreme bridge to the highest method. Even if one cannot read or chant it, simply offering it respectful veneration will yield immeasurable merit and blessings.

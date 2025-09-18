@@ -1,0 +1,64 @@
+# Chapter Ten: Master Sa Lays Out the Dead, Pities the Young; Uses Thunder and Fire to Drive Away the Plague Demons
+
+Now it happened that one day Master Sa was wandering again, arriving at a place called Xipu. In the wilderness of Xipu, there lay an old man dead, about eighty or ninety years of age. Left behind was a young child, no more than two or three years old. At that moment, Wang E and the Talisman Envoy had arrived there first. Wang E said, “Master Sa Shoujian has come here. If he does not pity the dead, nor care for the young child, that would be heartless and against principle. We must give him a whip lash.” The Talisman Envoy replied, “To pity the young and cherish the dead is indeed a great dao. If he lacks this heart, I too would find it hard to stop you from striking him. Let us see what he does.” Before the words were finished, Master Sa himself came forward.
+
+On the crossroads lay the old man dead, and beside him the young child. How pitiable was the dead elder? One saw:
+
+A long beard like snow in midwinter, short hair like frost in the ninth month. His eyes were closed yet not at rest, his naked body shining bright. Beneath his feet were no worn or tattered socks or shoes, upon his body no small fine garments. What lonely, bitter elder was this? From what place did this aged man come, wandering so forlorn? Why did he not live well and die peacefully in his proper bed? Why was he left lying alone by the roadside? Crows gathered, ready to swoop down in flocks to peck; yellow dogs sniffed, mustering in pairs to fight. Such a scene was heartrending and tragic—truly a death full of dread and despair.
+
+And the child left behind—how pitiable was he? One saw:
+
+Tearful eyes dropping like raindrops, crying sounds wailing and sobbing. Like a lonely, helpless young lamb, like a lost fledgling raven, silent and hungry. This was not the son left behind by Deng Bo, nor the lonely child abandoned by Lady Liu. Alas, this tender little one, only two years old, why was he crying and wailing at the three-way crossroads? Other children were still swaddled snugly in their bundles; this child was tossed and scattered among mud and sand. Looking at his face, there was no laughter or playfulness; hearing his voice, he only called “nanny” and “father.” The cries for nanny were full of sorrow and grievance, the longing for father full of sadness and yearning. Watching his frightened and helpless state, one could not help but feel deep sorrow.
+
+Now why was the dead elder without clothes, without shoes? Because a beggar had passed by, seeing the dying old man, stripped him of his clothes, shoes, and socks—thus he lay naked. Master Sa came to this place, seeing the elder without proper end and the child without care, could not hold back the sorrow swelling in his chest, tears streaming down his cheeks. Seeing the dead man without clothes or shoes, he took off two shirts and his own shoes and socks, slowly dressing the dead elder. He could not bear the child’s crying either, fearing hunger, so he quickly conjured a jujube and gave it to the child to stave off hunger. The child ate the jujube and stopped crying.
+
+Master Sa wished to bury the old man but had no coffin. Not to mention a coffin, even digging a grave in the wilderness was impossible—no hoe or shovel to borrow. Helpless, he took the magic sword he wore and slowly used it to dig the earth. Though much earth was dug, he wrapped it in a patched robe. What did this resemble? It was like the saying: “How virtuous the Zhao lady, wrapping earth with hemp skirts to build a grave mound.”
+
+The grave pit was dug two or three feet deep. Master Sa cut some branches here and some banana leaves there, laying a layer of branches and banana leaves in the pit. Then he laid the dead elder on top, covered him with several thick layers of banana leaves, and finally wrapped the earth over the corpse. When the burial was complete, he sharpened his sword and sheathed it. Then, carrying the child on his back, he sought the child’s relatives, thinking, “This elder must be the child’s grandfather. This grandfather, perhaps carrying his grandson, went somewhere but died here unexpectedly. This child surely cannot be more than ten li away.”
+
+He first asked in the eastern village—no one knew. Then the northern village—no one recognized him. Then the western village—no one claimed him. Master Sa had no choice but to go to the southern village. There he came upon a household where an elder of over eighty years lived. This elder looked like this:
+
+Leaning on a bamboo staff neither long nor short, wearing a cloth robe neither yellow nor white. Wearing a hat neither tall nor short made of felt, tied with a hemp cord neither large nor small. Truly one of the Five Elders of Xiangshan, indeed one of the Four Sages of Shangling. Though not a Qing dynasty official in the ancestral temple, he was a terrestrial immortal hidden among the weeds.
+
+This elder, upon seeing the child, asked Master Sa, “Sir, where did you bring this child from?” Master Sa said, “Yesterday I passed through Xipu and saw in the wilderness at a crossroads an old man dead, and this child left behind. I buried the elder and now carry this child seeking his kin. I have traveled a whole day but found no trace.”
+
+Hearing this, the elder cried out “Ah!” and tears fell unbidden. Master Sa asked, “Why do you weep, sir?” The elder said, “The dead man is Zheng Deweng; this child is his grandson. Deweng lived a life of virtue, but because he dwelt in a ruined house and made a bad home, he invited plague and disaster. This year the whole family caught a pestilence—one son and one daughter-in-law gravely ill, near death. Deweng feared this child might also catch the plague and end the family line, so he tried to carry the child to his daughter’s home to escape. That home is thirty li away. Deweng, at ninety years old, could not make the journey and died in Xipu. Pitiful! Pitiful!”
+
+After speaking, he wept bitterly again. Master Sa asked, “May I ask your name and whether you are kin or clan to Deweng?” The elder said, “I am old Yang, named Fengji, not kin nor clan to Deweng, only a childhood schoolmate. Deweng died in Xipu, and I could not bury him; you buried him. This child I could not save; you saved him. I am grateful for your kindness.” Master Sa said, “No need for such words.” Then he asked, “Where does Deweng’s family live?”
+
+Old Yang pointed to the village ahead and said, “That house is his, but sir, you must not go.” Master Sa asked, “Why do you say I should not go?” Old Yang said, “I suspect Deweng’s daughter-in-law will die soon. Now spirits and demons gather in that house. Not only do they appear at night, but even in daylight they manifest—throwing bricks on the roof, tossing tiles from the upper floors. That place is now a path no one walks, a meal no one eats.” Master Sa said, “I have some methods to drive away spirits and demons, to heal the sick and revive the dying. I will go see; it matters not.” Old Yang said, “If you have such wondrous methods, go then, but leave the child with me.” Master Sa said, “I brought the child with me. If his parents are still alive, seeing their son might ease their illness.” Old Yang agreed, “That is true.” Master Sa then took his leave.
+
+Arriving at the Zheng household, indeed spirits and demons swarmed—large and small, long and short; some with white faces, some blue, some black; some with tangled hair, some with rolling eyes. They threw bricks, tossed tiles, wielded sticks, and performed boxing. To see such apparitions in broad daylight, who would dare enter?
+
+Master Sa, undaunted, held the child in his arms, gathered his spirit, formed hand seals, and summoned fierce thunder in his palm and blazing fire at his fingertips. Thunder roared and fire blazed, striking those demons and monsters until their souls fled and spirits scattered, burning them until their hearts chilled and their courage shattered. In a moment, it was like hot soup poured on snow—no trace remained.
+
+Master Sa then entered the house. Deweng’s daughter-in-law lay weak, near death. Master Sa took the palm-leaf fan taught by Immortal Wang Fangping—one wave to dispel heat, two waves to bring coolness, three waves to chill the bones. The couple, revived from near death, returned to life. Though they had been ill for over half a month, unable to eat a mouthful of gruel, now they regained strength. Master Sa then conjured jujubes, chanting: “Sheep horn, sheep horn; deer Lu, deer Lu; an hong ne he ba fu hong.” The jujubes appeared from his sleeve. He gave two to each person. Upon eating, their bodies felt healthy, and they rose from their beds.
+
+The child, seeing his parents, cried out loudly. Master Sa unwrapped him and returned him to them. They asked, “Sir, why was our child in your arms?” Master Sa said, “Yesterday in Xipu, I saw an old man dead at a crossroads, with this child crying beside him. I buried the elder and carried the child seeking his kin. I met old Yang Fengji, who said the dead was your father and this child your son. I also heard you were gravely ill. I drove away the demons and saved you. Now I return your son to you.”
+
+The couple wept loudly upon hearing this. The husband cried, “My father died without proper burial.” The wife cried, “Our precious child was nearly lost.” They both knelt and thanked Master Sa, saying, “We owe a debt of burial to our father, a debt of rescue to our son, a debt of life to you. We have nothing worthy to repay.”
+
+Master Sa saw them bowing and quickly helped the husband up, then urged him to lift his wife. He said, “I am a monk; helping people is my duty. No thanks are needed. But your father must be properly buried with clothes and coffin.” Having given these instructions, Master Sa took his leave. The couple saw him out the gate, deeply moved.
+
+The Talisman Envoy, seeing Master Sa’s deeds, sighed, “Master Sa’s virtue is rare among the ancients, scarce in this age. How could immortals not need him?” Wang E also bowed his heart and said, “This matter is indeed the hardest.” Then the Talisman Envoy said to Wang E, “I have followed Master Sa for just twelve years. He has no fault, truly a genuine master. Soon he will ascend the immortal ranks. You should join him, become one of his generals. Is that not good?” Wang E said, “I obey.” The Talisman Envoy said, “I will return to see the City God. Now I take my leave.” They parted ways. This matter is not to be told here.
+
+Now Master Sa came one day to the Longxing River, in late autumn, when the water is pure and the cold pool clear. Master Sa, seeing the autumn water vast and bright, stood by the stream and admired it, then composed a poem:
+
+> Wild waters stretch to the sky, autumn one hue,  
+> West wind still, the green waves calm and true.  
+> Clear depths forbid the slightest dust to stir,  
+> Deep and pure, their clarity endures.  
+> Ten thousand acres cold hold emerald shades,  
+> A river’s chill ripples, duck heads jade.  
+> If human hearts were free of dross and stain,  
+> Surely the jade mirror within would remain.
+
+As Master Sa recited these lines, he saw the water reflect the heart, and through the heart, the Dao. Suddenly, a divine figure appeared in the water. His face was square, wearing a yellow kerchief, clad in golden armor, left hand pulling his sleeve, right hand holding a whip, standing before Master Sa.
+
+Master Sa asked, “What spirit are you?” The spirit answered, “I am the god of Xiangyin Guangfu Temple, surnamed Wang, named E. Once I demanded sacrifices of boys and girls, and Master Sa burned my temple. For twelve years I have followed secretly, watching for any fault to avenge past grudges. Now Master Sa’s功 is complete and he is to be recorded among the immortals. I wish to serve as one of his generals.”
+
+Master Sa said, “You are a fierce and evil spirit. If you sit under my法 and act recklessly, you will damage my法. I will not accept you. Begone! Begone!” The spirit said, “I now repent my past wrongs and turn from evil. If you will not accept me, then where is the saying, ‘A gentleman helps others succeed, not fail’?” Master Sa said, “If you say so, can you be consistent from start to finish?” Wang E then swore an oath: “Today I repent and turn from evil. If I fail to be sincere, may thunder strike me down and I fall forever into the prison of Yin Mountain.” Master Sa said, “Then change your name, replace the ‘E’ with ‘Shan’—from now on be called ‘Wang Shan.’”
+
+Wang Shan bowed and thanked him. Master Sa said, “I now wish to journey to Fengdu to rescue some wandering souls. Will you accompany me?” Wang Shan said, “Since Master Sa has accepted me, I dare not leave your side. If you go to Fengdu, I will gladly go with you.” Master Sa said, “So be it, come with me.”
+
+But what happened when Master Sa reached Fengdu—this will be told below.

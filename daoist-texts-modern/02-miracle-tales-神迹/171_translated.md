@@ -1,0 +1,5 @@
+# A Daoist Who Took Vows in His Fifties and the Miraculous Power of the Scripture for Deliverance
+
+At the Tiantai Monastery dwelt a Daoist named Chen Taiqing, who only embraced the dao after passing fifty years of age. From the moment he entered the path, he devoted himself tirelessly to the recitation of the Scripture for Deliverance, chanting it day and night without weariness. Whether walking, resting, or sweeping the monastery grounds, he never ceased holding the sacred words in mind.
+
+Before donning the robes, Chen Taiqing was known for a fierce temper; the neighbors nearby held him in little affection. When he became a Daoist, his teeth had nearly all fallen out, and his hair was almost entirely white. Yet, in a marvel of transformation, after more than ten years of steadfastly holding the scripture, his white hair darkened once again, and astonishingly, new teeth grew in their place. His steps became light and swift, so that when he climbed the mountains, even the young could not match his pace.

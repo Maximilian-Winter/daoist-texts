@@ -1,0 +1,41 @@
+# A Tale of a Pilgrim Daoist’s Vow on the Thunderfast Day: Reverent Repentance Before the Spirit Official’s Manifested Judgment
+
+There came a pilgrim Daoist who sought lodging at the monastery, and by fortune was granted a place to stay. Day by day, he joined in the morning and evening practices, living in harmony and joy with the community. At that time, the monastery held a strict rule: on the day of the Thunderfast, one entire day must be devoted to the rite of repentance. The repentance ceremony at the Thunder Altar required a heartfelt summons of faith, not a mere lighting of incense followed by immediate kneeling. It was not so simple.
+
+Back then, the monastery’s demands for repentance were exceedingly rigorous. The lamps were kept dim, never bright. This was akin to the “Entering the Stillness and Passing Through” practice, holding that in darkness the heart’s own light shines clearer, for to deceive in a dark chamber is no true repentance. Because of this, the night was the favored time—when thoughts are clearest, the monastery’s desired state for repentance. As the rite neared its close, the lamps were brightened, symbolizing the breaking of darkness, the granting of light by the Heavenly Venerable, and the illumination brought forth by one’s own sincere remorse. According to the Master, this was a passage from death to life, from hell to the hall of blessings.
+
+During the repentance, at each utterance of the Heavenly Venerable’s sacred name, one prostrated face to the earth. Only after hearing three beats of the drum, then the sound of the chime, could one rise. The interval—about three to five seconds—was the time to bow in contrition and reflect on one’s misdeeds. The drum sounded like thunder, a constant reminder that in the netherworld the thunder rolls. Many such details abounded. For example, at the moment of “Entering the Stillness,” a supervising officer stood at the gate, holding a disciplinary rod, clad in neat official robes.
+
+This pilgrim Daoist twice missed the repentance on the Thunderfast day by unfortunate accidents. But on this one day, he joined us in the rite. What began as a normal repentance suddenly shifted: his voice rose, trembling with tears, crying out:
+
+“From the first thought and impulse, wanton and reckless action, profaning the sacred and true, daring to offend Heaven and Earth, defiling wind and rain, exposing the stars, betraying lord and master, rebelling against parents, bullying the weak and orphaned, scorning kin and friends, slaying all living beings, scattering the five grains, weighing with false scales, counting by false measures, a hundred becoming a thousand, cruel laws and harsh punishments, forcible invasion and wrongful seizure!”
+
+At that moment, I thought: this is true sincerity indeed. Yet he only recited this one line, once through, then struck his head down hard. After only a few prostrations, his head broke open, blood slowly flowing down his face—an utterly terrifying sight. The pilgrim seemed possessed, repeating that one phrase with eerie emphasis, head striking the earth again and again, so forceful it pained those who watched. Our original plan for the repentance was thrown into disarray. After nearly twenty such prostrations, my senior uncle knelt before the deity’s statue and said, “By the vast grace of Heaven, please spare him this once.” The Master and other elder Daoists knelt as well, saying, “Spirit Official, Great Emperor, please show mercy, and let this serve as a teaching for future generations—that too is a merit.” This was the essence of their words; I dare not repeat all, lest I fill pages with mere padding.
+
+With that, the pilgrim ceased, collapsing face down. We hurried to lift him, seven or eight hands working together to carry him to the dormitory. We wiped his wounds with towels while the repentance continued elsewhere. His wound was not deep, but his eyes were filled with panic, pupils visibly dilating and contracting. Yet he was quiet, trembling now and then.
+
+After tending him, one was left to watch over him while we composed ourselves and returned to the main hall to continue the repentance. Four days passed before he regained clarity. No one asked questions; all merely speculated on what had happened. According to our sect’s mastery of the dao, it was unlikely any evil spirit could enter here.
+
+Curious, I asked the Master, who smiled and said, “In a few days, you will understand.” Two days later, the pilgrim sought out the Master, my senior uncle, and other elders, and they sat together in the courtyard. The pilgrim said he must leave, expressing deep gratitude for the care and shelter given. At that time, the monastery was overseen by my senior uncle, who said to the pilgrim:
+
+“To cultivate the dao is to guard the spirit platform within the heart; never lose your original mind, nor betray Heaven and Earth. Take good care of yourself!”
+
+The pilgrim bowed his head long, then spoke of what had happened in the main hall and of his past.
+
+It turned out this pilgrim had entered the path not for cultivation, but for wealth. He found not only riches but the respect of others, which made him feel elated. He bought talismanic scriptures, for his calligraphy was fine, and his copied talismans were beautiful and sold at high prices, yet they sold without end. Having gained wealth, he gradually looked down on his Master, growing less respectful in word and deed. Entering the Dao for money, he held no reverence or awe for the immortals; his daily offerings and incense were mere formalities. He broke precepts, eating meat against the rules, quarreling without cease. If a believer did not seek him for rites or talismans, he would harass and threaten them relentlessly—only when they bought his goods did he relent.
+
+Hearing this, I understood why he only recited that one line:
+
+“From the first thought and impulse, wanton and reckless action, profaning the sacred and true, daring to offend Heaven and Earth, defiling wind and rain, exposing the stars, betraying lord and master, rebelling against parents, bullying the weak and orphaned, scorning kin and friends, slaying all living beings, scattering the five grains, weighing with false scales, counting by false measures, a hundred becoming a thousand, cruel laws and harsh punishments, forcible invasion and wrongful seizure!”
+
+His thoughts and impulses were truly without restraint—wanton and reckless. He disobeyed the great dao, disrespected the ancestral masters, harbored ill intent, broke solemn vows, profaned the celestial immortals, and dared to offend Heaven and Earth. He showed no respect to his Master, even speaking insolently, betraying lord and master. Breaking precepts by eating meat, lodging in brothels—these were forbidden acts.
+
+That day, in the main hall, he suddenly felt dazed, seeing before him a towering Spirit Official, glaring fiercely. Two golden-armored generals flanked the Spirit Official; one grasped his head, and he lost control of himself. A loud voice intoned:
+
+“From the first thought and impulse, wanton and reckless action, profaning the sacred and true, daring to offend Heaven and Earth, defiling wind and rain, exposing the stars, betraying lord and master, rebelling against parents, bullying the weak and orphaned, scorning kin and friends, slaying all living beings, scattering the five grains, weighing with false scales, counting by false measures, a hundred becoming a thousand, cruel laws and harsh punishments, forcible invasion and wrongful seizure!”
+
+His mouth could not help but follow, reciting these words. Only when the Daoist elders pleaded did it end. He was left dizzy and unable to move.
+
+The next day, the pilgrim left. I never saw when or how, nor did I see him again. Yet this matter lingered in my heart. From then on, I often performed repentance rites, mostly the Thunder Method repentance. True repentance begins in the heart and ends in conduct. One must repent inwardly and cease wrongful deeds; only then is it true repentance. The pilgrim once said he had long felt many warnings from Heaven but dismissed them as coincidences or inexplicable events, finding excuses to continue his wanton ways.
+
+And to keep the precepts is not mere lip service—it must be guarded sincerely from the heart.

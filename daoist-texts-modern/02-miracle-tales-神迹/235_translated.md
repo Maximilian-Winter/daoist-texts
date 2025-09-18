@@ -1,0 +1,11 @@
+# The Earth Deity’s Manifest Response: Protecting the Good and Preserving Peace
+
+In the year zero hundred, Master Zhang was engaged in the long-haul transport of goods by vehicle. On one occasion, passing through a country lane, he was seized by an urgent call of nature and stepped down from his carriage. As he sought relief, his eyes caught sight of a wild pheasant. At that time, the laws and customs safeguarding wild creatures were not yet firmly established or observed. So, startled by the bird, Master Zhang pursued it, intending to capture the pheasant and offer a ritual in honor of his five viscera.
+
+He began to chase the bird deep into the forest. Indeed, the pheasant seemed unable to fly, yet it kept a measured distance from him. Just as he was about to give up, he would close the gap again; and as he neared to seize it, the pheasant would deftly evade capture. When Master Zhang rounded a great, thick tree, the pheasant suddenly vanished without a trace. He searched all around but found nothing, and so he relented.
+
+Preparing to leave the forest and resume his journey, he found—much to his dismay—that no matter how he tried, he could not find his way out. Fear took hold, and he ran and sought repeatedly, yet the forest held him fast. Remembering a saying that in such moments one might light a cigarette, for the fire’s glow could break the “ghostly walls” that trap wandering souls, he struck a flame. But even the flickering light could not pierce the invisible barrier.
+
+At last, weariness overcame him. He lay beneath a tree and slipped into a dream. There, an old man appeared and spoke: “You have always offered me worship; I must aid you. I have opened the mountain path—hurry back to your carriage. But wait until dawn before you drive again.” Upon waking, Master Zhang recognized the old man’s visage as that of the Earth Deity of his village. Because he drove with care to protect safety, he had always burned incense and made offerings, paper and money, to the Earth Deity.
+
+In the end, he found his way out, returned to his carriage, and waited until the first light of dawn before venturing forth once more.

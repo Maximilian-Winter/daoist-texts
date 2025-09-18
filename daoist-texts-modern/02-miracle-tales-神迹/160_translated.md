@@ -1,0 +1,13 @@
+# The Daoist of Xiandu Mountain in Jinyun and the Efficacy of Rituals to the Dipper for Changing Fate
+
+In the sacred realm of Xiandu Mountain, nestled within Jinyun County of Lishui City, there lies the immortal sanctuary known as the Prayer for Immortals Grotto. Among its hallowed sites is the holy relic of Dinghu, the very place where, in ages past, the Yellow Emperor Xuanyuan himself refined the Golden Elixir. The scenery here is breathtakingly beautiful, and the numinous energy presses close upon the spirit.
+
+Within this setting dwelt the Lishui devotee Zhao Youqing, a man brimming with learning and literary accomplishment, yet unrecognized and trapped in the hardships of his fate’s turning. Often he sighed deeply, lamenting his misfortune.
+
+One day, his fellow Daoist traveler Liu Gaoxuan from the Dragon Gate Grotto in the northwest confided to him: “I once heard from an elder practitioner of the northwest that rituals to the Dipper can alter one’s destiny. Long ago, the venerable Patriarch Wang Changyue sincerely performed such rites to the Dipper and was graced by the descent of sacred truths, fulfilling all his petitions. Why, dear friend, must you not perform the ritual to the Dipper to seek smooth passage in your fortunes?”
+
+Moved by these words, Master Zhao earnestly invited Daoist Liu to conduct the ritual of the Dipper to transform his fate. Daoist Liu consented, and so he undertook fasting and incense offerings, performing the ritual morning and evening, bowing and praying to the Northern Dipper, lighting lamps to beseech blessings.
+
+One autumn night of that very year, the layman Zhao dreamed of a divine figure entering his slumber. Clad in vermilion robes and a splendid crown, his countenance radiant and refined, he spoke: “The Star Lords of the Northern Dipper, moved by your utmost sincerity, have commanded the reading of the celestial registers. Your destiny indeed holds the blessing of official rank and fortune. The star officials have already removed the malevolent stars from your natal palace. Now, with the Purple Tenuity’s auspicious glow and fortunate stars shining upon you, good fortune approaches swiftly.”
+
+That winter, when Lishui City held its civil service examinations, Zhao Youqing succeeded with distinction. He has since become a government official. Now his wealth is abundant, his household harmonious, and ever mindful of the Dipper Star Lords’ illumination, he frequently visits the temple to burn incense in gratitude.

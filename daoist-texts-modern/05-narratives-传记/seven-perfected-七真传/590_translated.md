@@ -1,0 +1,73 @@
+# Chapter Twenty-Two: Dividing the Reed Mat—The Great Dao Does Not Cling to Affection; Seeking Physiognomy—Measuring a Person Face to Face
+
+Doing good is like climbing a hundred-foot pole: descending is easy, ascending is hard.
+
+One must diligently cultivate the fruits of practice; never let the courage and vigor within grow cold.
+
+---
+
+The story goes that Ma Danyang and Qiu Changchun were sitting in meditation at the Cold Temple in the Slanting Valley. Snow blocked their way, preventing them from going out to receive alms. Qiu Changchun, unaware that Ma Danyang was already a person who had attained the Dao, only pitied him as a man born into a wealthy family—how could he endure such bitter cold and hunger? He thought to find a household to offer a bowl of porridge to relieve their hunger and thirst.
+
+Stepping outside the temple to look around, he saw clouds stretching across the Qinling Mountains, snow blanketing a thousand peaks. Not only was it impossible to see any household, even the traces of paths were pressed down by the snow. He did not know where to set foot; if he forced his way through, he would surely fall into a snow pit. Not only would the porridge be unattainable, but life itself would be in danger. Seeing this, he returned to the temple and sat down again. Because he pitied Ma Danyang’s hunger, the thought of wanting to eat porridge disturbed his spirit and unsettled his mind. He could not sit still; throughout the night, this thought repeatedly troubled him without rest. Early in the morning, he was so alarmed that he hurried to the mountain hollow to visit Old Zhang’s home and entrust a dream.
+
+Old Zhang was in the midst of a deep sleep, his soul wandering, when suddenly a white-haired old man entered the room and said, “In my temple are two practitioners blocked by snow, hungry for three days and nights. You must rise quickly and cook some food to send them, to relieve their hunger and thirst.” After speaking, he vanished. Old Zhang awoke with a start, then roused his wife to explain the matter. His wife, a lifelong believer in spirits, heard this and hastened to light the fire. She called their son and daughter-in-law to rise as well, and together they cooked the meal. Old Zhang told them of his dream. The son and daughter-in-law were pleased. Soon the meal was ready; dawn had broken. Old Zhang rose and sent his son to bring the food to the Cold Temple, inviting the two to eat.
+
+Ma Danyang thought that some nearby people, seeing them starving, had secretly sent the meal to relieve their hunger and thirst. This was possible. So he and Changchun ate the food, thanked them, and resumed their meditation. After they finished, Old Zhang’s son gathered the bowls and utensils and returned home.
+
+Ma Danyang sat until afternoon before rising to look outside. He saw a man approaching from afar and, fearing entanglement, hurried back into the temple, about to sit down. Just then, Qiu Changchun stood and said, “It seems that practitioners of the dao also have spiritual resonance. Last night, fearing you could not bear the hunger, I suddenly had a thought to arrange some porridge to relieve your hunger and thirst. Once this thought arose, early this morning someone brought food. Is this not a sign of spiritual connection?”
+
+Ma Danyang’s face suddenly darkened with anger. He said, “A gentleman seeks the Dao, not food. You do not think of advancing in the work of the Dao; you only crave drink and food. Have you not heard that the past mind cannot be retained, the present mind cannot be held, and the future mind cannot be raised? Your three minds are not yet resolved; your single thought is impure. How can you comprehend the Dao? I will no longer travel with you. Let us part here.”
+
+Hearing this, Changchun regretted his mistaken thought and spoke kindly to reconcile. As they were talking, someone came outside. This man, having run out of firewood at home, had come to cut some branches from the trees in front of the temple. Ma Danyang saw he carried a vegetable knife and borrowed it. The man, not knowing what for, handed him the knife. Ma Danyang took the knife, cut the reed mat into two halves, returned the knife, and said to Changchun, “One reed mat divided into two parts—half for you, half for me. Each should cultivate their own practice. Do not begin diligently and end lazily, thus ruining your future.”
+
+Having said this, he went out and left.
+
+Qiu Changchun was unwilling to part, so he hurried after him. The man cutting wood saw him and said, “At such a time, where is the master going?” Changchun looked around and quickly replied, “I am going to catch up with my senior brother.” The man looked about but saw no one and said, “Where has your senior brother gone? I see no one.” Changchun pointed to the middle path and said, “He went this way.” The man said, “This road is dozens of miles without a soul. The sky grows late; where will you lodge? Better listen to my advice, stay the night, and seek him tomorrow.” Changchun said, “Then could you call out a few times? Perhaps he will hear and return.” The man climbed the tree and shouted loudly, “Daoist, come back quickly! Do not go! Do not go!” He called more than ten times with no response. He climbed down, gathered the firewood, and went home.
+
+In truth, Ma Danyang’s Dao fruit was already complete. Thus, he parted from Changchun, letting him cultivate and refine on his own, to make good use of his effort. If they traveled together, it would only delay his progress.
+
+That day, Ma Danyang left the temple and journeyed by earthen paths all the way to the quiet nourishment of Mount Song in Henan. On the twenty-seventh day of the twelfth month in the Jiatai jiǎzǐ year, he ascended in flight. He left behind the “Records of Cultivating Reality” for posterity. Among the Seven Perfected, six completed their work; only Qiu Changchun had yet to finish. After parting ways with Ma Danyang, he redoubled his efforts, making several vows and composing a poem to dispel delusion:
+
+When deluded thoughts arise, do not heed them;  
+Hunger thinks of food, thirst thinks of soup.  
+Now I dispel all deluded thoughts,  
+Replacing old cravings with empty broth.  
+If one desires others’ wealth, bones will break;  
+If one greedily takes food, sores will form in the mouth.  
+All delusions must be completely extinguished,  
+Within the body, empty, nothing remains.
+
+Delighted beyond measure, he practiced this for over a month. Yet forgetting was inevitable. So he went to a carpenter’s shop and asked for a plank, making a small tablet. Borrowing brush and ink, he wrote eight lines on it to shock and remind himself. The eight lines read:
+
+Deluded thoughts wish to be removed but are unclear;  
+Now on this tablet, they are written plainly.  
+Deluded speech and words all cease;  
+Deluded thoughts and greed are swept away.  
+Deluded grasping of silver money breaks the claws;  
+Deluded craving for food causes mouth sores.  
+Constantly examine the matters at hand;  
+Do not let the Seven Emotions and Six Desires arise.
+
+Qiu Changchun kept the tablet with him, reading it once or twice daily. Each time he stopped a delusion, his work deepened. Gradually, his skill in dispelling delusion grew refined. Wandering east and west, one day in the Hedong region, he saw a neat estate by the roadside. The gate was wide open; it was midday. He went to receive alms. A young servant came out from inside. Qiu Changchun said, “I come from afar, specially to this virtuous estate to receive a meal.” The servant went inside, and soon returned carrying a tray piled high with food, placing it on a stone stool before the estate, inviting Changchun to eat.
+
+Just as Changchun was about to eat, an elder appeared, looking about fifty years old, with half-white hair and beard. He glanced at Changchun, took two steamed buns from the tray, and gave them to him, calling the servant to take the rest back inside. Changchun felt uneasy and said to the elder, “The young servant brought the food out to offer me alms. Why then did you call him to take it back? Could it be that you are unwilling, or that I am unworthy to enjoy it? Please, sir, do not conceal your meaning.”
+
+The elder smiled and said, “A meal’s affinity cannot be broken by one such as myself. It is because you, Daoist, lack the blessing to consume it.” Changchun was greatly astonished and said, “I cannot even partake of a single meal? There must be a reason. Please, sir, explain it to me.” The elder said, “I have studied the Ma Yi physiognomy since youth and wandered the rivers and lakes for many years, discerning a person’s poverty or wealth, longevity or short life, honor or decline, gain or loss, without error. The world calls me ‘Ma Yi’s Match.’ Just now, I observed your physiognomy and saw that you cannot eat a full meal. If you eat one full meal, you will go hungry for several more. It is better to give you less so that you have something to eat every meal. This is my kind intention, not stinginess.”
+
+Changchun nodded and said, “You have rightly pointed out my flaw without error. Please, sir, examine me again and tell me if I have attained the Dao.” Ma Yi’s Match looked again and said, “No, no. Do not blame me for speaking plainly. I see two wrinkles on the tip of your nose, a double division at the mouth entrance, called the ‘Teng Snake Locking the Mouth.’ This means you will starve to death. Though other parts are fine, you cannot escape this fate. Since this calamity cannot be avoided, how can you attain the Dao?”
+
+Changchun asked, “Is there any way to change it?” Ma Yi’s Match said, “Your physiognomy is fixed for life. How can it be changed? Only death can end it. Whether rich or poor, in the secular world or in the monastery, you will starve to death. You cannot escape or evade it; no method can resolve it.
+
+Let me tell you of two ancient men: In the Warring States period, there was King Zhao Wuling, who bore the mark of starvation. He was a sovereign of a nation—how could he starve? His two sons fought for the throne, raising arms against each other. Fearing he might change his favor, they locked the palace gates and guarded them with soldiers. The fighting lasted for months without cease; the palace ran out of food, and all officials starved to death. King Zhao Wuling starved for seven days without tea or water. Seeing a sparrow’s nest in a tree before the palace, he wished to catch a young sparrow to eat. A ladder was placed against the tree; he climbed up with great effort. But the young sparrow had left the nest, leaving only an egg in his hand. Just as he was about to eat it, a large sparrow flew in, flapping its wings. King Zhao Wuling’s hand loosened, and the egg fell, breaking on the ground. Because his physiognomy destined him to starve, he could not even eat an egg and eventually starved to death.
+
+Again, in the Han dynasty, Emperor Cheng had an official named Deng Tong. A physiognomist told him he was destined to starve. One day, he reported to Emperor Cheng, “I, Deng Tong, am an honest official with no surplus at home. The physiognomist says I will starve. I fear this may come true.” Emperor Cheng said, “I can enrich the living and raise the dead. What weight do you give to a physiognomist’s words? I grant you the right to cast coins at the Copper Mountain in Yunnan. Use it for a year, and you will gain over a hundred thousand copper coins. In ten years, your family wealth will reach a million. How can you starve?” Deng Tong thought he could avoid starvation. But soon Emperor Cheng passed away, and the crown prince ascended. The officials accused Deng Tong of flattering the old emperor and secretly casting coins at the Copper Mountain for personal gain. His crime was grave. The new emperor, reading the report, was angered and ordered the Ministry of Punishments to confiscate Deng Tong’s property. Out of respect for the late emperor’s old minister, he spared his life but imprisoned him in the Heavenly Prison. After many officials submitted further reports, his water and fire were cut off. He starved for seven or eight days. Near death, he begged for water to drink. A jailer, moved by pity, secretly brought water. But when the prison guard saw this, he shouted. The jailer panicked, slipped, and spilled a bowl of cold water on the ground, and Deng Tong starved to death without even a sip.
+
+These two ancient men, though wealthy and powerful, ended by starving to death. Is this not proof that physiognomy is accurate? Thus, Bo Yi and Shu Qi knew their fate and willingly died beneath Mount Shouyang. Emperor Wu of Liang and King Fu Jian of Later Qin did not know their fate and starved to death at Taicheng and Wujang Mountain. Knowing fate or not, if one is destined to starve, one must starve. How can one escape?
+
+These ancient examples struck Qiu Changchun’s soul, turning his hot thoughts to cold ashes. His heart of Dao enlightenment instantly dissolved like shattered tiles in flowing water. He bid farewell to Ma Yi’s Match and did not advance further. Returning to Western Qin, he resolved to learn from the two sages Bo Yi and Shu Qi, to know fate and obey Heaven.
+
+One day, he came to a mountain valley with a stream running through it. On both sides rose high mountains, and the deep stream was flanked by jagged rocks. It was a remote mountain path seldom traveled. He chose a large stone and lay down upon it. He starved for seven days and nights, not even drinking water, resolved to die peacefully. Because he was a cultivator, his spirit was full and robust; an ordinary person would have perished long before. On the ninth day, a sudden rain fell somewhere unknown, swelling the river to flood his side. He was a man seeking death, willing to accept fate and await Heaven’s decree to test the physiognomy. He refused to seek another path to die, hence the delay. Had he not accepted fate, had he changed his mind, he could have jumped into the water and spared himself much hardship. The ancient mind is single and undivided, not swayed by life or death; thus, it is called pure and simple.
+
+Meanwhile, upstream, a fresh peach floated down the water, as large as a clenched fist, bobbing before Changchun with waves. A fragrance wafted to his nostrils. Changchun had no intention to eat it. He thought, “King Wuling could not eat a single sparrow egg before death; Deng Tong could not drink a bowl of cold water before death. Now, at my death’s door, I do not know if I may eat this fresh peach.” Will Changchun be able to eat it or not? Let us see in the next chapter.
+
+Fate not to die may yet be saved; Heaven sends a fresh peach to his lips.

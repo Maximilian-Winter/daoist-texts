@@ -1,0 +1,21 @@
+# The Gate of Hidden Malevolence
+
+The Book of Changes says: “Union in the open field brings success.” The Supreme Sage said: “One should cultivate oneself with generosity and be sparing in blaming others; thus, grievances will be kept at a distance.” The Venerable Ancestor said: “The Dao is empty, yet when used, it is never full.” These teachings all speak to how one must hold oneself and respond to the world: one must maintain a temperament of harmony and peace, never harboring hidden malevolence that obstructs the Dao.
+
+For those who study the dao, the root cause is not to crave what is good, but to learn goodness; not to indulge evil desires, but to abandon them. Yet, in learning to cherish the good and discard the evil, the greatest treasure is to be without intention—above all, to avoid having a calculating mind. Without intention, there is no self; without self, there is no other. Without other and self, the distinction dissolves: I am you, and you are I; self and other both forgotten.
+
+Even if others insult or humiliate, one remains unaware; if others deceive or mock, one remains unaware; if harm is done, one remains unaware; if ears hear slander, one remains unaware; if the body faces great calamity, one remains unaware. All external encounters, whether adverse or favorable, are met with a mind unbound by intention, without weaving grudges or enmity—dwelling in a state of effortless peace.
+
+Consider a hall where many study together: good and evil, wise and foolish, all are different. Each person has their own nature; a hundred people, a hundred natures. How can one expect all to conform to one’s wishes? Some words may wound, some actions may be false. Hearing as if not hearing, seeing as if not seeing—one must respond according to the person, letting faults pass without dispute.
+
+Moreover, when a master instructs, rebukes, or scolds, if there is fault, one should swiftly correct and redouble care. A true master selects fine materials; if you are a determined aspirant, you will be specially tempered to strengthen your resolve. If you are a worthless piece, the master lets you be, leaving you to your own devices.
+
+Therefore, those who study the dao, whether responding to the world or following teachings, must never let private intentions arise; always maintain a public heart, and only then will progress be made. The worldly muddle-headed learner only wants others to comply with their wishes, never willing to comply with others. They crave flattery, dislike honest words. At the slightest offense, they grow unhappy. They forget great kindnesses, but remember minor grievances.
+
+Hidden venom festers in their hearts and chests, accumulating over years and months, never released. Though outwardly smooth-tongued and smiling, inwardly they conceal sharp blades. They cannot cease their revenge. Even if they themselves err, when teachers or friends point out faults and admonish, they do not repent. In the light, they argue right and wrong; in the dark, they slander and deepen grudges. Their hidden venom is boundless—they are bandits of the spirit.
+
+They never contemplate the great dao of life and nature. How could such bandits understand or attain the hidden venom’s cure? When anger is not removed, demeanor unchanged, one falls into the sea of birth and death’s endless wheel—how tragic!
+
+I urge those who sincerely seek the dao to swiftly open the gate of hidden malevolence, to purge all lifelong hatred and poisonous qi, to cast away all dull and evil thoughts. Respond to all things with harmony and peace; in every matter, yield to others. Bear heavy burdens, endure insults—forge yourself in the great fiery pit, wrestle your way out of the arena of contention.
+
+All phenomena are empty; admit not a single mote. In time, you will meet a true master who will lift you from the sea of suffering. Otherwise, every word and phrase you cannot bear, every bump and bruise you cannot endure, will breed vexation—serpents and scorpions nest in your chest, bees and wasps fill your belly. To foolishly imagine hearing the dao—how difficult that will be!
